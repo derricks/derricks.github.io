@@ -1,0 +1,87 @@
+These are comics/graphic novels we've read. We strive to find books with diverse characters and girl protagonists, so this selection reflects that. The books generally go up in order of reading level/maturity.
+
+Note that the difference between comics and picture books can blur at the edges.
+
+## Publishers You Can Trust
+First Second - Science Comics, Ben Hatke books, and more of our favorites
+Toon Books - Different reading levels, diverse range of stories, non-fiction
+
+
+## The Books We've Read
+_Owly_ series, Andy Runton
+Mostly wordless comic books featuring the gentle adventures of an owl and its worm friend. While Owly and Wormy talk occasionally, they do so with pictograms. Note that since nothing says Owly is a boy, you can read it with the protagonists being girls. Artwork is straightforward but evocative.
+
+_Korgi_ series, Christian Slade
+A series by someone who clearly enjoys drawing detailed fairies and corgis in pencil. Adventures of a Caucasian pixie girl (a "molly") who has a magical corgi. Which is about as adorable as you can imagine. The wordless (minus the intros) stories can be quite scary, so you might have to edit for younger audiences.
+
+_Hilda_ series, Luke Pearson
+One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
+
+Kevin McCloskey comics (_We Dig Worms_, _The Real Poop on Pigeons_, etc.)
+These books, published by Toon Books, are science-based comics for the younger reader. They pack a lot of information into a relatively small amount of fun text. Kids love facts, and these are good reads for them
+
+_Chi's Sweet Home_ series, Kanata Konami
+If you have cats, you'll particularly appreciate this manga about a kitten who moves in with a Japanese family (despite a no-pets rule in their apartment) and has adventures around the neighborhood with other cats and dogs. Konami perfectly captures the mindset of a cat and the humans who see it. Warning, if you read it aloud to your kids, you'll be reading a lot of sound effects.
+
+_Cucumber Quest_ series, Gigi D.G.
+This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
+
+_The Cardboard Kingdom_, Chad Sell (and others)
+There's a lot going on in these pages, which is largely about a group of kids having intense imaginary play, fueled by discarded cardboard. The artwork goes back and forth between how an adult might see the kids -- boxes on heads and chunky cardboard accessories -- and how they see themselves -- heavily stylized with flowing robes and glowing armor. There are kids with family issues, kids of color and different sexual orientation, kids with big imaginations, and kids with more analytic streaks. The stories in the book tie together, but largely focus on particular characters for their arc.
+
+_Phoebe and Her Unicorn_ series, Dana Simpson
+This series is pretty witty, but we've not exposed our daughter to it yet since it leans heavily on common grade-school experiences and sarcastic humor. Our daughter is in kindergarten. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate Phoebe and Her Unicorn), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school.
+
+_Babymouse_ series, Jennifer & Matthew Holm
+Lots of kids love this series about a mouse going through school and having typical schoolkid adventures (jealous of friends, wants to be popular, etc.). We found it fairly dreary and stopped reading after a couple books.
+
+_Pets on the Loose!_ series, Victoria Jamieson
+What happens when well-known rodent criminals get turned into school pets? Well, they go a bit soft. Their priorities change. And suddenly they're battling their equivalents from the older kids' classrooms. Goofy plots and elaborate capers make for an enjoyable, light read
+
+_Magic Trixie_ series, Jill Thompson
+This story would be about normal childhood emotions -- jealousy about siblings, being dissatisfied with one's own life, wanting to do things you're not allowed to do -- except the Caucasian protagonist and her family are all witches of various forms. And her friends include vampires, werewolves, and mummies. Rich graphics provide lots of detail to enjoy, and there are in-jokes for the parents as well.
+
+_Cici's Journal_ series, Joris Chamblain & Aurélie Neyret
+This beautifully drawn series has rich, deep storylines set in the real world. Cici is a would-be writer who finds interesting mysteries around her and works with her friends to get to the root of them. Cici is Caucasian, as are most of the people around her (the books are imported from France or Belgium)
+
+_Chasma Knights_, Boya Sun & Kate Reed Petty
+This book (maybe first in a series) drops you right into a vividly colored surreal world in which "knights" named for chemical elements bond with "toys" to make incredible devices and experiences. Except for the main character, who, as a neon knight, can't fuse with toys. Instead, she figures out how to make new and more interesting toys by scavenging parts from others. Looks like standard kid themes of isolation, finding a small number of good friends over being popular, and wanting to show up those who teased you. There's also an undercurrent of how destructive capitalism can be.
+
+_Fish Girl_, Donna Jo Napoli & David Wiesner
+A Caucasian mermaid lives in a water-filled house and gradually learns that she's being held from her true home by the sideshow entertainer who plays the part of Neptune in his shows. She slowly figures out how to get free. This is a bittersweet story, and there are some parts that parents will read as leering boys harassing a pretty girl, but it's filled with Wiesner's rich artwork and touches on themes of friendship, loss, and home.
+
+_Clan Apis_, Jay Hosler
+Think science comics won't move you? This is a book that imparts a huge amount of information about the science of bees in a good narrative. The story focuses on a single drone's life, but her eager questions about the world around her drive a lot of science in with the plot. The end is moving -- bees don't have a long life -- and there is loss and victory throughout.
+
+_Secret Coders_ series, Gene Luen Yang
+I don't know what about this series clicked with my daughter, but she absorbed this series eagerly. Three kids, a girl named Gracie Hopper, an African-American boy named Eni, and an Asian-American boy named Josh use Logo to save the world. No, really. Some well-known real-world references (Seymour Papert, Flatland), but otherwise a complicated science fiction plot. Many pages in each book are devoted to stepping through increasingly complex Logo problems.
+
+_The Tea Dragon Society_, Katie O'Neill
+A gentle fantasy story about Greta, who discovers the almost-lost art of raising tea dragons, small animals who grow tea leaves that impart visions when steeped. A loving gay relationship and multiracial characters make for a diverse cast, but the joy is really in the appreciation of artisanal products.
+
+_Jellaby_ series, Kean Soo
+This two-book series, in which the two protagonists work to restore a purple monster to its home, has some very frightening aspects, but ultimately follows a heroic arc. A fair amount of the book takes place in the nightmares of the Caucasian girl at the center of the book.
+
+_Brave Chef Brianna_, Sam Sykes & Selina Espiritu
+Brianna's father is a world-famous chef, and he challenges his kids to set up their own shops and compete for the right to use his branding going forward. Brianna sets herself up as a restaurateur in a city mostly populated by "monsters." There are clear notes about prejudice and tolerance and feeling good about one's self and believing in something here. Brianna (Caucasian, like her siblings) is full of self-doubt, and uses lots of mean words to describe herself, but ultimately triumphs -- if not in the way readers anticipate.
+
+_Zita the Space Girl_ series, Ben Hatke
+Look up "comics books for girls" and Zita is likely to be near the top of the list. We're big Ben Hatke fans, largely because of this sci-fi adventure. Zita and a friend (a boy, both Caucasian) get sucked into a spacefaring civilization and have to make their way back home. Colorful characters in an ensemble cast support the friends as they navigate the new worlds. We read it to our daughter when she was quite young, but she recently re-read it herself by doing one book a night.
+
+_Mighty Jack_ series, Ben Hatke
+There are some intersection points with the Zita series (read that series first to get the jokes) but this is a standalone fantasy series that focuses on a Caucasian boy, his autistic sister, and a fierce Caucasian friend (girl) who lives down the street. The three plant a garden with out-of-this-world (literally) seeds that create a range of adventures.
+
+_Abigail and the Snowman_, Roger Langridge
+Abigail (possibly Caucasian, possibly of color -- the shading makes it hard to tell) befriends a yeti who has escaped some sort of secret government lab. There's violence here (helicopters being shot down) along with a frightening moment where it seems like the yeti has died, but it all works out on the end.
+
+_Lumberjanes_ series, Shannon Watters and Grace Ellis
+An enthusiastically feminist comic series starring five girls attending a summer camp where not-of-this-world creatures are common visitors to the surrounding woods. Interesting plots, and nothing but strong female characters. Even within the main five girls, there's race and class diversity, one trans girl, and one lesbian relationship. The girls "swear" by naming feminist icons. Think, "Holy Clara Booth Luce!"
+
+_Cleopatra in Space_ series, Mike Maihack
+This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampire Slayer for some reason. Cleopatra -- the Cleopatra -- is a super-strong fighter, but relies on a group of friends to actually beat the ubiquitous Big Bad. There's a fair amount of middle grade/high school romantic feelings about, but overall this is a good romp with lots of action and political maneuvering.
+
+_5 Worlds_ series, Mark Siegel, Alexis Siegel, lots of other people
+This is a rich sci-fi/fantasy epic adventure that has themes of oppression, climate change, and more. We ate this book up and are eagerly awaiting the next one. The three main protagonists (drawn in different races) include Oona, a sand dancer who can manipulate the magical sand scattered around the 5 Worlds; An Tzu, a boy from the slums of the main world who is slowly dying from a "fading sickness" that causes him to be more invisible over time; and Jax Amboy, a starball player who An Tzu worships. The three have to work together to light the "5 beacons" established by the old gods. There are surprises aplenty in these books.
+
+_Science Comics_ series, various authors
+Each volume in this series is packed with lots of good information. Most have a light narrative framework (with Volcanoes being the most extreme), but they're really about showing off lots of great facts about their topic with great illustrations. 
