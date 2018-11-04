@@ -6,7 +6,7 @@ These are a step above early readers. Technically divided into chapters, the cha
 
 _Houndsley & Catina_ series, James Howe
   * Premise: Anthropomorphized animals have various simple adventures.
-  * General thoughts: We really liked this series. The stories are calm and quiet, with occasional good descriptive imagery (aside from the pictures). We particularly liked Houndsley & Catina and the Quiet Time.
+  * General thoughts: We really liked this series. The stories are calm and quiet, with occasional good descriptive imagery (aside from the pictures). We particularly liked _Houndsley & Catina and the Quiet Time_.
   * Social commentary: None. Animals are anthropomorphized.
 
 _Baby Monkey, Private Eye_, Brian Selznick
