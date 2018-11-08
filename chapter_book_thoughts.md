@@ -198,7 +198,7 @@ _The 13-Story Treehouse_ series, Andy Griffiths and Terry Denton
   
 _Agatha, Girl of Mystery_ series, Stefano Turconi
   * Premise: A fabulously wealthy girl with "a formidable memory" travels the world solving mysteries.
-  * General thoughts: Our daughter liked reading the first book in this, and it would seem to tick a lot of kid-friendly boxes: spying, detective work, infinite wealth, eccentric family boxes. I'm a bit mystified, in the first book, about the fact that her cousin passes the detective test even though Agatha did all the work. Also her "memory drawers" technique sounds like an attempt to talk about memory palaces, but the author doesn't seem to really understand them.
+  * General thoughts: Our daughter liked reading the first book in this, and it would seem to tick a lot of kid-fantasy boxes: spying, detective work, infinite wealth, eccentric family members. I'm a bit mystified, in the first book, about the fact that her cousin passes the detective test even though Agatha did all the work. Also her "memory drawers" technique sounds like an attempt to talk about memory palaces, but the author doesn't seem to really understand them.
   * Social commentary: The very wealthy protagonists are Caucasian (though the butler is more ambiguous, which doesn't help things) and the first book, at least, relies on a lot of stereotypes. The Egyptian natives are scared off by the idea of a curse. The German is fat and constantly eating (think Augustus Gloop). And the actual Egyptian Egyptologist is vaguely sinister and wears a robe of hieroglyphics. Plus the male protagonist says "everything is backwards here" about Egypt.
 
 ## Where The Line Between Chapter Books and Normal Books With Illustrations Fades
