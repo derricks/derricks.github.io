@@ -135,6 +135,11 @@ _Clementine_ series, Sara Pennypacker
   * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
   * General thoughts: Ooh, boy, Clementine seems like a handful, which resonates with us. High-energy, smart, determined, and willful like our daughter, she would probably be classified as "spirited." There are some complex things going on in these books, and the writing is decent.
   * Social commentary: Clementine (Caucasian) is gifted at math! Hooray for a book that a) makes math talent seem desirable and b) has girls enjoying it. Her own family clearly lives more paycheck-to-paycheck, while her "best friend" (it's complicated) clearly has a lot more money.
+  
+_A Boy Called Bat_, Elana K. Arnold
+  * Premise: An autistic boy is determined to keep a baby skunk his veterinarian mom brings home
+  * General thoughts: This is a sweet, gentle book, and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
+  * Social commentary: Bat is autistic, and the book tries to give you a view of what it's like to be inside Bat. There's a fair amount going on between the lines: Are kids teasing him or being sincere, his parents are divorced, and his father seems to be having a midlife crisis. You also get to see how Bat's autism affects his interactions with everyone, including kids who want to be friends and his sister.
 
 _Sophie Mouse_ series, Poppy Green
   * Premise: Random adventures of anthropomorphized animals
