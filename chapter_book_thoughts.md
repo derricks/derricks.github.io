@@ -138,7 +138,7 @@ _Clementine_ series, Sara Pennypacker
   
 _A Boy Called Bat_, Elana K. Arnold
   * Premise: An autistic boy is determined to keep a baby skunk his veterinarian mom brings home
-  * General thoughts: This is a sweet, gentle book, and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
+  * General thoughts: This is a sweet, gentle book (the first in a series), and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
   * Social commentary: Bat is autistic, and the book tries to give you a view of what it's like to be inside Bat. There's a fair amount going on between the lines: Are kids teasing him or being sincere, his parents are divorced, and his father seems to be having a midlife crisis. You also get to see how Bat's autism affects his interactions with everyone, including kids who want to be friends and his sister.
 
 _Sophie Mouse_ series, Poppy Green
