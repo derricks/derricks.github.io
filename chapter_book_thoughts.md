@@ -105,6 +105,11 @@ _Ada Lace_ series, Emily Calandrelli
   * Premise: Computer-savvy girl moves to San Francisco and uses technology to solve problems.
   * General thoughts: We like these storylines, and I particularly like that the technology they use is modern. Ada uses Arduinos and smartphones; you don't have to explain to your kids why people are going somewhere to use a phone.
   * Social commentary: Nerdy Caucasian girl who likes science and is skeptical of her woo-woo friend's ideas. Ada is also color blind, which is very uncommon in girls. Dad is an art teacher and mom has the better-paid job as an art curator and is often traveling.
+  
+_Two Dogs in a Trench Coat_ series, Julie Falatko
+  * Premise: Two dogs wrap themselves in a trench coat and venture out to school and the human world
+  * General thoughts: Our daughter was giggling non-stop during this and pausing frequently to show us something hilarious in the book. Even I found it often amusing, but don't expect verisimilitude of any kind.
+  * Social commentary: All the human characters are Caucasian, with the exception of the main teacher in the story. There's some negative views of school, but nothing too outside the norm.
 
 _The Questioneers_ series, Andrea Beatty
   * Premise: Chapter book series continuing the adventures of picture book favorites Rosie Revere, Iggy Peck, and Ada Twist
