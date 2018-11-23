@@ -82,6 +82,10 @@ _Henry & Mudge_ series, Cynthia Rylant
   * General thoughts: Inoffensive and classic.
   * Social commentary: Avoid the Annie and Snowball series that's a spin-off. Annie is pretty obviously some mid-80s ideal of good little girls, though I do note that her dad is divorced for much of the series. Henry is Caucasian
 
+_Princess Posey_ series, Stephanie Greene
+  * Premise: A first-grader dons a tutu to give herself confidence as the imaginary "Princess Posey" and has typical first-grade adventures
+  * General thoughts: The writing in this is decent, and the adventures relatable. Neither particularly bad nor good.
+  * Social commentary: The Caucasian girl is given a lot of pink, sparkly things. Not much deviation from gender norms here.
 
 ## Big Kid Books
 These books still have largish type, but you'll find more complex emotions and interactions. While still obviously chapter books based on the length, illustrations, complexity, and type size, these are beginning to be more-than-one-sitting books. Characters are usually of early elementary school age.
