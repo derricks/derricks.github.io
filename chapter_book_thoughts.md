@@ -194,6 +194,12 @@ _Heidi Heckelbeck_ series, "Wanda Coven”
   * Premise: Second-grader Heidi Heckelbeck is a witch whose spells mostly just make situations worse and teach her moral lessons.
   * General thoughts: The setups are formulaic and the resolutions pretty pat. But they're mostly enjoyable, and it's fun to come up with your own spells in her style. Also, it's a bit odd that Heidi's not supposed to do spells but has a spell book uniquely suited to the needs of a second-grader.
   * Social commentary: Girls do magic and boys do science. Ugh. Also, the ubiquitous mean girl is exactly what you'd imagine a stereotypical mean girl would look like. Heidi's best friend is a minority (everyone else is Caucasian), though there's nothing about that in the text, so she feels token-y
+  
+_Frankly Frannie_ series, A.J. Stern
+  * Premise: Young girl desperate to have an adult job concocts new careers in each book, with amusing results
+  * General thoughts: Frannie's a good character that speaks to how kids think and talk. She thinks she's ready to be an adult and craves office supplies. 
+    But her made-up words quickly go from cute to grating over the course of the book.
+  * Social commentary: Frannie's family is Caucasian and they're implied to be middle-class.
 
 _Magic Treehouse_, Mary Pope Osborne
   * Premise: Two kids have various time travel adventures that center around Morgan LeFey.
