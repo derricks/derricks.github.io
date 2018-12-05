@@ -72,6 +72,11 @@ _Zoey and Sassafras_ series, Asia Citro
   * General thoughts: The premise for this is quite good, without resorting to the easy tropes for kids this age. I especially like the way the scientific method is called out, even if it is in the service of curing mythical beings. Perfect for fans of Doc McStuffins or stories about helping animals.
   * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work. 
 
+_Mouse Scouts_ series, Sarah Dillard 
+  * Premise: A small troop of "Mouse Scouts" (akin to Girl Scouts) tries to earn their badges
+  * General thoughts: These are gentle books in which the girls in the troop must work together and overcome differences. "Handbook" asides feature information that humans can use as well.
+  * Social commentary: None
+
 _Lulu_ series, Judith Viorst
   * Premise: "Terrible" (see below) child Lulu has various adventures to get what she wants
   * General thoughts: Kids love seeing other kids be bad, and Lulu satisfies in that regard. There's plenty of humor and repetition to help early readers.
@@ -189,7 +194,7 @@ _Anna Hibiscus_ series, Atinuke
   * Premise: African-Canadian girl has various adventures within her African village.
   * General thoughts: We like this series (note that each book has four chapters that are separate stories). The characters feel real and are enjoyable.
   * Social commentary: Anna's family is clearly well-off, and there are discussions about people of different socioeconomic status and their interactions with the Hibiscus family. I feel like too much of the book reduces all of Africa to one set of mores and traditions, but that may get better as time goes on — the series started decades ago. Interracial couple.
-
+  
 _Heidi Heckelbeck_ series, "Wanda Coven”
   * Premise: Second-grader Heidi Heckelbeck is a witch whose spells mostly just make situations worse and teach her moral lessons.
   * General thoughts: The setups are formulaic and the resolutions pretty pat. But they're mostly enjoyable, and it's fun to come up with your own spells in her style. Also, it's a bit odd that Heidi's not supposed to do spells but has a spell book uniquely suited to the needs of a second-grader.
@@ -200,7 +205,7 @@ _Frankly Frannie_ series, A.J. Stern
   * General thoughts: Frannie's a good character that speaks to how kids think and talk. She thinks she's ready to be an adult and craves office supplies. 
     But her made-up words quickly go from cute to grating over the course of the book.
   * Social commentary: Frannie's family is Caucasian and they're implied to be middle-class.
-
+  
 _Magic Treehouse_, Mary Pope Osborne
   * Premise: Two kids have various time travel adventures that center around Morgan LeFey.
   * General thoughts: If you've looked up lists of chapter books, you've already found this seemingly endless series. The plot structure is repetitive (for each four books, travel to different points in time and get some object for some spell that needs all four), but they do try to include some nonfiction (there's a companion series of nonfiction books that touch on each topic) and they confer some amount of early reader pop cultural literacy, I suppose. The Merlin's Mysteries series picks up where TMT leaves off and are aimed at older readers.
