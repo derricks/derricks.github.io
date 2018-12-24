@@ -139,6 +139,16 @@ _Beatrice Zinker, Upside-Down Thinker_, Shelley Johannes
   * Premise: A girl whose creativity is shown by literally having her think best when upside-down has school adventures
   * General thoughts: The writing in this is poppy, which can be a bit wearing for the course of the book. I like the fact that Beatrice's friendship issue is a bit different -- her partner in crime from 2nd grade is trying to be more "normal."
   * Social commentary: Beatrice's 3rd grade teacher is a good example of how _not_ to be compassionate towards kids. She's held up as a mean, judging figure. There's a lot of commentary on being normal or not, though a fair amount is between the lines. Beatrice is Caucasian.
+  
+_Knights vs. Dinosaurs_, Matt Phelan
+  * Premise: Braggart Knights of the Round Table are sent back in time to battle dinosaurs. They have to work together to actually win, though.
+  * General thoughts: This is a bit like an Onion headline or SNL skit: Funny idea, but mediocre execution. The knight battles get old quickly, and the ending feels very neat.
+  * Social commentary: Two of the characters -- spoiler! -- are girls in disguise. This causes some consternation amongst the knights, but it's done well enough. Though why you can imagine time-traveling knights but not having openly female Arthurian Knights is beyond me. Also, given the premise, it should be no surprise that there's lots of violence in this book, which your kid may or may not like.
+  
+_Mac B., Kid Spy_ series, Mac Barnett 
+  * Premise: The real-life Mac Barnett spins a yarn of the somewhat fictional child Mac Barnett, who is called into duty as a spy.
+  * General thoughts: Barnett is a champ at writing for children, and this book falls right in his wheelhouse. The actual spying is silly, with somewhat ludicrous adventures, but every kid imagines themselves a spy, so this should satisfy that.
+  * Social commentary: Mac B. is, unsurprisingly, a Caucasian boy like Mac Barnett the author. Since he uses his own life as a guide, he lives with a divorced mom who doesn't seem to have a lot of money. 
 
 _Jada Jones_ series, Kelly Starling Lyons
   * Premise: Typical friendship/school adventures
