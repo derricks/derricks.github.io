@@ -32,7 +32,7 @@ There's a lot going on in these pages, which is largely about a group of kids ha
 _Hilo_ series, Judd Winick
 A burping robot boy who can fly and shoot lasers from his hands is the titular boy, which will no doubt appeal to many children. But beyond the lowbrow humor, there's a lot of depth in these books; even in the
 first book, it's hinted that Hilo is both the solution and the cause of the problems facing Earth, and that the "bad guy" maybe has the right message but the wrong implementation. One could maybe raise an eyebrow
-about a basically Aryan kid come to save the African-American sidekicks, but the girl in that set is also a super nerd.
+about a basically Aryan kid come to save the sidekicks who are people of color, but the girl in that set is also a super nerd.
 
 _Phoebe and Her Unicorn_ series, Dana Simpson
 This series is pretty witty, but we've not exposed our daughter to it yet since it leans heavily on common grade-school experiences and sarcastic humor. Our daughter is in kindergarten. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate Phoebe and Her Unicorn), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school.
