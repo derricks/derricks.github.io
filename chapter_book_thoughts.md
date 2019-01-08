@@ -154,6 +154,11 @@ _Jada Jones_ series, Kelly Starling Lyons
   * Premise: Typical friendship/school adventures
   * General thoughts: Good exploration of feelings
   * Social commentary: Jada is an African-American girl who enjoys science and is respected as a leader in her class.
+  
+_Isadora Moon_ series, Harriet Muncaster
+  * Premise: Half-vampire, half-fairy girl has standard lower grade school adventures but with supernatural elements
+  * General thoughts: This is a cute series about a girl who straddles two different worlds. I'm sure it will appeal to those former Goth parents who have to deal with fairy-loving (and not Faerie-loving) children. Note that the most notable aspect of vampires is solved by having her dad drink "red juice."
+  * Social commentary: Maybe there's something to be said for a girl who's the child of two very different backgrounds, but honestly there doesn't seem to be much here to abstract to, say, the experience of a biracial child.
 
 _Clementine_ series, Sara Pennypacker
   * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
