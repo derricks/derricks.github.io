@@ -109,6 +109,11 @@ _Violet Mackerel_ series, Anna Branford
   * Premise: Violet Mackerel is a young girl who loves Small Things and concocting Theories about how Small Things affect the world.
   * General thoughts: We're big fans. The plots here can be quite nuanced, relatively speaking, and really go deep on how Violet and her siblings feel and how they work through their feelings. Plus we love how Violet tries to make even Small Things have big impacts.
   * Social commentary: Violet's Caucasian family is definitely not well-off. If not poor, per se, they are often worrying about money, and Violet's mom and siblings all work at the market to try and get money to get by. This causes jealousy when Violet meets a friend who's clearly much better off. Violet's mom is divorced (many references to “after Dad left”) and remarries within the series, which causes a lot of difficult feelings for Violet's older siblings.
+  
+_Book Uncle and Me_, Uma Krishnaswami
+  * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
+  * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
+  * Social commentary: The book takes place in India, and Tamil words are sprinkled through the text without translation. The girl protagonist is a devoted book reader, and she is given a voice by virtue of her political actions. There is a thread about how a more conservative uncle disapproves of her learning and her mother's job.
 
 _Ada Lace_ series, Emily Calandrelli
   * Premise: Computer-savvy girl moves to San Francisco and uses technology to solve problems.
