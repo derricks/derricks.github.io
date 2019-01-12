@@ -86,6 +86,9 @@ An enthusiastically feminist comic series starring five girls attending a summer
 ### _Cleopatra in Space_ series, Mike Maihack
 This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampire Slayer for some reason. Cleopatra -- the Cleopatra -- is a super-strong fighter, but relies on a group of friends to actually beat the ubiquitous Big Bad. There's a fair amount of middle grade/high school romantic feelings about, but overall this is a good romp with lots of action and political maneuvering.
 
+### _Mouse Guard_ series, David Petersen
+This complex adventure features mice in a medieval-style world warding off predators but also political unrest within the mouse kingdoms. The titular Guard are fierce, loyal soldiers. The artwork in this is rich, though it can be hard to see what's going on in the many fight scenes as the camera twists and turns.
+
 ### _5 Worlds_ series, Mark Siegel, Alexis Siegel, lots of other people
 This is a rich sci-fi/fantasy epic adventure that has themes of oppression, climate change, and more. We ate this book up and are eagerly awaiting the next one. The three main protagonists (drawn in different races) include Oona, a sand dancer who can manipulate the magical sand scattered around the 5 Worlds; An Tzu, a boy from the slums of the main world who is slowly dying from a "fading sickness" that causes him to be more invisible over time; and Jax Amboy, a starball player who An Tzu worships. The three have to work together to light the "5 beacons" established by the old gods. There are surprises aplenty in these books.
 
