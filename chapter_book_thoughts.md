@@ -253,6 +253,11 @@ _Dory Fantasmagory_ series, Abby Hanlon
   * Premise: Highly imaginative girl navigates a rich fantasy world that wraps around her day-to-day normal-kid adventures.
   * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
   * Social commentary: Dory and her family/friends are all Caucasian.
+  
+_Bob_, Wendy Mass & Rebecca Stead 
+  * Premise: A magical creature has stayed put in a closet ever since the owner's granddaughter told him to. But that was five years ago, and she's just returned, having forgotten all about him.
+  * General thoughts: This is an interesting premise that quickly dodges a lot of the easy tropes, though there are still some to be found. Bob's story, and Livy's too, is pieced together by the two of them throughout the book, and the ending is quite a surprise.
+  * Social commentary: Livy is a smart, determined Caucasian girl. Her grandmother and all her neighbors are suffering from a long drought, and the poverty they've faced has taken its toll.
 
 _Cilla Lee-Jenkins_ series, Susan Tan
   * Premise: Self-proclaimed future literary star Priscilla Lee-Jenkins grapples with the common travails of elementary school and family life, but also with racially insensitive townspeople
