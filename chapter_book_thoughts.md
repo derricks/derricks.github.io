@@ -291,6 +291,11 @@ _Sam the Man_ series, Frances O'Roark Dowell
   * Premise: In a way kids will appreciate, Sam comes up with various roundabout schemes to solve his problems. Reminiscent of Violet Mackerel.
   * General thoughts: These are gentle books with plots that are complex but realistic.
   * Social commentary: Sam's family is Caucasian, but I believe one of his neighbors is a person of color
+  
+_Ra The Mighty: Cat Detective_, A.B. Greenfield 
+  * Premise: Pharoah's self-important cat teams up with a dung beetle and a stray cat to save a child falsely accused of stealing a valuable necklace.
+  * General thoughts: The fact that Ra is puffed up about his awesomeness while the dung beetle does all the actual work has something of a Jeeves and Wooster book. The plot takes some unexpected twists, along the way giving a peek into royalty and customs in Ancient Egypt.
+  * Social commentary: There are some asides about how the royalty is largely unconcerned with their servants, but for the most part this is animals talking to each other.
 
 _Me & Mister P_, Maria Farrer
   * Premise: A silent polar bear comes to live with Arthur and his family, which includes his autistic younger brother Liam
