@@ -120,6 +120,16 @@ _Ada Lace_ series, Emily Calandrelli
   * General thoughts: We like these storylines, and I particularly like that the technology they use is modern. Ada uses Arduinos and smartphones; you don't have to explain to your kids why people are going somewhere to use a phone.
   * Social commentary: Nerdy Caucasian girl who likes science and is skeptical of her woo-woo friend's ideas. Ada is also color blind, which is very uncommon in girls. Dad is an art teacher and mom has the better-paid job as an art curator and is often traveling.
   
+_Clementine_ series, Sara Pennypacker
+  * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
+  * General thoughts: Ooh, boy, Clementine seems like a handful, which resonates with us. High-energy, smart, determined, and willful like our daughter, she would probably be classified as "spirited." There are some complex things going on in these books, and the writing is decent.
+  * Social commentary: Clementine (Caucasian) is gifted at math! Hooray for a book that a) makes math talent seem desirable and b) has girls enjoying it. Her own family clearly lives more paycheck-to-paycheck, while her "best friend" (it's complicated) clearly has a lot more money.
+  
+_A Boy Called Bat_, Elana K. Arnold
+  * Premise: An autistic boy is determined to keep a baby skunk his veterinarian mom brings home
+  * General thoughts: This is a sweet, gentle book (the first in a series), and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
+  * Social commentary: Bat is autistic, and the book tries to give you a view of what it's like to be inside Bat. There's a fair amount going on between the lines: Are kids teasing him or being sincere, his parents are divorced, and his father seems to be having a midlife crisis. You also get to see how Bat's autism affects his interactions with everyone, including kids who want to be friends and his sister.
+
 _Two Dogs in a Trench Coat_ series, Julie Falatko
   * Premise: Two dogs wrap themselves in a trench coat and venture out to school and the human world
   * General thoughts: Our daughter was giggling non-stop during this and pausing frequently to show us something hilarious in the book. Even I found it often amusing, but don't expect verisimilitude of any kind.
@@ -164,16 +174,6 @@ _Isadora Moon_ series, Harriet Muncaster
   * Premise: Half-vampire, half-fairy girl has standard lower grade school adventures but with supernatural elements
   * General thoughts: This is a cute series about a girl who straddles two different worlds. I'm sure it will appeal to those former Goth parents who have to deal with fairy-loving (and not Faerie-loving) children. Note that the most notable aspect of vampires is solved by having her dad drink "red juice."
   * Social commentary: Maybe there's something to be said for a girl who's the child of two very different backgrounds, but honestly there doesn't seem to be much here to abstract to, say, the experience of a biracial child.
-
-_Clementine_ series, Sara Pennypacker
-  * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
-  * General thoughts: Ooh, boy, Clementine seems like a handful, which resonates with us. High-energy, smart, determined, and willful like our daughter, she would probably be classified as "spirited." There are some complex things going on in these books, and the writing is decent.
-  * Social commentary: Clementine (Caucasian) is gifted at math! Hooray for a book that a) makes math talent seem desirable and b) has girls enjoying it. Her own family clearly lives more paycheck-to-paycheck, while her "best friend" (it's complicated) clearly has a lot more money.
-  
-_A Boy Called Bat_, Elana K. Arnold
-  * Premise: An autistic boy is determined to keep a baby skunk his veterinarian mom brings home
-  * General thoughts: This is a sweet, gentle book (the first in a series), and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
-  * Social commentary: Bat is autistic, and the book tries to give you a view of what it's like to be inside Bat. There's a fair amount going on between the lines: Are kids teasing him or being sincere, his parents are divorced, and his father seems to be having a midlife crisis. You also get to see how Bat's autism affects his interactions with everyone, including kids who want to be friends and his sister.
 
 _Sophie Mouse_ series, Poppy Green
   * Premise: Random adventures of anthropomorphized animals
