@@ -71,6 +71,11 @@ _Zoey and Sassafras_ series, Asia Citro
   * Premise: Young girl has the ability to see magical creatures and the scientific background to help heal them
   * General thoughts: The premise for this is quite good, without resorting to the easy tropes for kids this age. I especially like the way the scientific method is called out, even if it is in the service of curing mythical beings. Perfect for fans of Doc McStuffins or stories about helping animals.
   * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work. 
+  
+_Something Queer_ series, Elizabeth Levy 
+  * Premise: Two girls and a basset hound solve various mysteries.
+  * General thoughts: These books have fairly dense type but are still pretty short. The mysteries resolve pretty quickly.
+  * Social commentary: Two Caucasian girls as protagonists.
 
 _Mouse Scouts_ series, Sarah Dillard 
   * Premise: A small troop of "Mouse Scouts" (akin to Girl Scouts) tries to earn their badges
