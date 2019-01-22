@@ -24,6 +24,9 @@ These books, published by Toon Books, are science-based comics for the younger r
 ### _Chi's Sweet Home_ series, Kanata Konami
 If you have cats, you'll particularly appreciate this manga about a kitten who moves in with a Japanese family (despite a no-pets rule in their apartment) and has adventures around the neighborhood with other cats and dogs. Konami perfectly captures the mindset of a cat and the humans who see it. Warning, if you read it aloud to your kids, you'll be reading a lot of sound effects.
 
+### _Dog Man_ series, Dav Pilkey
+The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
+
 ### _Cucumber Quest_ series, Gigi D.G.
 This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
 
