@@ -283,9 +283,9 @@ _The Lifters_, Dave Eggers
   * Social commentary: The Caucasian protagonist's family is poor, as are most people in the town, and the girl character is a person of color who wears a Ruth Bader Ginsburg t-shirt. While older readers might decide that the protagonist is attracted to her, you could also read it as just being fascinated by her in a Platonic way.
   
 _Unusual Chickens_ series, Kelly Jones 
-  * Premise: A girl and her family inherit her great-uncle's farm in small-town California, and it turns out his chickens are possessed of unusual abilities.
-  * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family is moved.
-  * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior. Also, the family has moved from a big city to a small town and is struggling financially.
+  * Premise: A girl and her family inherit her great-uncle's farm in small-town California, and it turns out his chickens have some unusual abilities.
+  * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family has moved.
+  * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior because she's not white. Also, the family has moved from a big city to a small town and is struggling financially.
 
 _Ivy and Bean_ series, Annie Barrows
   * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
