@@ -15,6 +15,9 @@ Mostly wordless comic books featuring the gentle adventures of an owl and its wo
 ### _Korgi_ series, Christian Slade
 A series by someone who clearly enjoys drawing detailed fairies and corgis in pencil. Adventures of a Caucasian pixie girl (a "molly") who has a magical corgi. Which is about as adorable as you can imagine. The wordless (minus the intros) stories can be quite scary, so you might have to edit for younger audiences.
 
+### _Sketch Monsters_ series, Joshua Williamson
+In this simple series, kids who doodle monsters to hide their true selves have to deal with the consequences when those doodles escape the sketchbooks. Simple messages about being true to oneself are carried by simple artwork.
+
 ### _Hilda_ series, Luke Pearson
 One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
 
