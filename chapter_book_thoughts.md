@@ -119,6 +119,11 @@ _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
   * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
   * Social commentary: The book takes place in India, and Tamil words are sprinkled through the text without translation. The girl protagonist is a devoted book reader, and she is given a voice by virtue of her political actions. There is a thread about how a more conservative uncle disapproves of her learning and her mother's job.
+  
+ _Dragons in a Bag_, Zetta Elliott
+   * Premise: A boy left with a witch for the day gets involved in a magical errand to put baby dragons in their proper worlds
+   * General thoughts: A child in this world getting accidentally involved in some magical quest is hardly a new idea, but this story moves along nicely and adds a lot of nice twists.
+   * Social commentary: Where to start. All the characters are people of color. Everyone is struggling with money -- Jax's mother is trying to prevent them from getting evicted. One of the magical creatures is homeless and is also invisible (literally and metaphorically).
 
 _Ada Lace_ series, Emily Calandrelli
   * Premise: Computer-savvy girl moves to San Francisco and uses technology to solve problems.
@@ -317,12 +322,10 @@ _The Story of Diva and Flea_, Mo Willems
   * General thoughts: Mo Willems is a masterful writer for this age range, of course, but this is a quieter book than his Pigeon and Elephant/Piggie series. It's hard to argue with the lovely Parisian backdrop in this book, and while the “city mouse vs. country mouse” trope is well-worn, this story still manages to entertain with its ankle-height view of the world around the two animals.
   * Social commentary: None
 
-
 _The Terrible Two_ series, Mac Barnett and John Jory
   * Premise: Two 11-year-old boys pull off elaborate pranks on their own and then together
   * General thoughts: We're big Mac Barnett fans, but we were meh for the first one. It starts slow, though finishes better, and portrays principals as buffoons. There are good vocabulary words in the text, though.
   * Social commentary: Teachers and principals as asses, unflattering portrayal of small towns. One character might be a person of color, but the main boys are not.
-
 
 _The Unicorn Rescue Society_ series, Adam Gidwitz
   * Premise: Two kids and a mad professor-type rescue mythical creatures. Maybe someday even unicorns.
