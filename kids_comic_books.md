@@ -53,11 +53,17 @@ What happens when well-known rodent criminals get turned into school pets? Well,
 ### _Magic Trixie_ series, Jill Thompson
 This story would be about normal childhood emotions -- jealousy about siblings, being dissatisfied with one's own life, wanting to do things you're not allowed to do -- except the Caucasian protagonist and her family are all witches of various forms. And her friends include vampires, werewolves, and mummies. Rich graphics provide lots of detail to enjoy, and there are in-jokes for the parents as well.
 
+### _Bera the One Headed Troll_, Eric Orchard
+Bera a pumpkin farmer in the land of trolls rescues a human baby from evil mermaids and sets off to return it to a human village. She tries to find help from troll heroes and other assorted magical creatures while staying a step ahead of a witch who wants to cook the baby, but ultimately has to solve the problems herself. The artwork in this fairy tale, done in browns and oranges, evokes _The Nightmare Before Christmas_, but is its own unique style.
+
 ### _Cici's Journal_ series, Joris Chamblain & Aurélie Neyret
 This beautifully drawn series has rich, deep storylines set in the real world. Cici is a would-be writer who finds interesting mysteries around her and works with her friends to get to the root of them. Cici is Caucasian, as are most of the people around her (the books are imported from France or Belgium)
 
 ### _Chasma Knights_, Boya Sun & Kate Reed Petty
 This book (maybe first in a series) drops you right into a vividly colored surreal world in which "knights" named for chemical elements bond with "toys" to make incredible devices and experiences. Except for the main character, who, as a neon knight, can't fuse with toys. Instead, she figures out how to make new and more interesting toys by scavenging parts from others. Looks like standard kid themes of isolation, finding a small number of good friends over being popular, and wanting to show up those who teased you. There's also an undercurrent of how destructive capitalism can be.
+
+### _Sanity and Tallulah_, Molly Brooks
+This large sci-fi volume focuses on two girls who live on a giant space station. Like any other tweenage girls, they go beyond the rules sometimes. In Sanity's case, that means creating a three-headed kitten -- Princess, Sparkle, Destroyer of Worlds -- in the station's bio labs. Subplots around Tallulah's father hint at stories that don't make it into the first volume, but the main story is about the space station going on the fritz due to some sort of invasive pest -- who shows up right when Princess, Sparkle, Destroyer of Worlds goes missing. The artwork shows off the diverse residents of the station as well as the many interiors.
 
 ### _Fish Girl_, Donna Jo Napoli & David Wiesner
 A Caucasian mermaid lives in a water-filled house and gradually learns that she's being held from her true home by the sideshow entertainer who plays the part of Neptune in his shows. She slowly figures out how to get free. This is a bittersweet story, and there are some parts that parents will read as leering boys harassing a pretty girl, but it's filled with Wiesner's rich artwork and touches on themes of friendship, loss, and home.
