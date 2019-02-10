@@ -92,6 +92,9 @@ There are some intersection points with the Zita series (read that series first 
 ### _Abigail and the Snowman_, Roger Langridge
 Abigail (possibly Caucasian, possibly of color -- the shading makes it hard to tell) befriends a yeti who has escaped some sort of secret government lab. There's violence here (helicopters being shot down) along with a frightening moment where it seems like the yeti has died, but it all works out on the end.
 
+### _The Courageous Princess_, Rod Espinosa
+When Princess Mabelrose gets kidnapped by a dragon and taken far from home, she decides to effect her own escape rather than waiting for a prince or a ransom. With courage, kindness, and some fortuitous treasures from the dragon's lair, she makes her way across the sprawling continent where she lives, helping those she meets even as her father moves southward to begin his own rescue. This sprawling, imaginative, lushly drawn, multiethnic fantasy is full of allusions to other fairy tales and stories. A bit too much time is spent on noting that Mabelrose isn't your standard princess-pretty (though she's actually drawn as quite attractive), but no one denies her bravery and courage. The first book in particular also devotes a lot of time to her and her family praying, which is not common in the comics we typically read. 
+
 ### _Lumberjanes_ series, Shannon Watters and Grace Ellis
 An enthusiastically feminist comic series starring five girls attending a summer camp where not-of-this-world creatures are common visitors to the surrounding woods. Interesting plots, and nothing but strong female characters. Even within the main five girls, there's race and class diversity, one trans girl, and one lesbian relationship. The girls "swear" by naming feminist icons. Think, "Holy Clara Booth Luce!"
 
