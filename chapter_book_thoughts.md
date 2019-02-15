@@ -124,6 +124,11 @@ _Book Uncle and Me_, Uma Krishnaswami
    * Premise: A boy left with a witch for the day gets involved in a magical errand to put baby dragons in their proper worlds
    * General thoughts: A child in this world getting accidentally involved in some magical quest is hardly a new idea, but this story moves along nicely and adds a lot of nice twists.
    * Social commentary: Where to start. All the characters are people of color. Everyone is struggling with money -- Jax's mother is trying to prevent them from getting evicted. One of the magical creatures is homeless and is also invisible (literally and metaphorically).
+   
+ _Make-Believe Empire: A How-To Guide_, Paul Berman
+   * Premise: This nonfiction book gives advice to kids on how to use household objects to construct their own vision of the imaginary lands inside their heads
+   * General thoughts: When we gave this book to our daughter, she went full-bore on it. She built herself an empire in her room by scavenging materials from all around. She drew a seal for her world and created religious songs of praise. Berman is a MacArthur recipient, and, like a disproportionate number of his genius peers, created his own vast empire as a youth. While this describes his own empire building, it can easily become inspiration for your own world builders.
+   * Social commentary: None, really. It was written long enough ago that pronouns probably default to "he," but this is effectively the memoir of his own play.
 
 _Ada Lace_ series, Emily Calandrelli
   * Premise: Computer-savvy girl moves to San Francisco and uses technology to solve problems.
