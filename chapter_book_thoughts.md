@@ -296,6 +296,11 @@ _Unusual Chickens_ series, Kelly Jones
   * Premise: A girl and her family inherit her great-uncle's farm in small-town California, and it turns out his chickens have some unusual abilities.
   * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family has moved.
   * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior because she's not white. Also, the family has moved from a big city to a small town and is struggling financially.
+  
+_Wild Robot_ series, Peter Brown 
+  * Premise: An intelligent, adaptive robot finds herself marooned on an island and must integrate herself into the wild animal community
+  * General thoughts: Book one of this series (all we've read as of this writing) starts out gently but ends in a tense cliffhanger. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will.
+  * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
 
 _Ivy and Bean_ series, Annie Barrows
   * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
