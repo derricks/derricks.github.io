@@ -135,6 +135,11 @@ _Ada Lace_ series, Emily Calandrelli
   * General thoughts: We like these storylines, and I particularly like that the technology they use is modern. Ada uses Arduinos and smartphones; you don't have to explain to your kids why people are going somewhere to use a phone.
   * Social commentary: Nerdy Caucasian girl who likes science and is skeptical of her woo-woo friend's ideas. Ada is also color blind, which is very uncommon in girls. Dad is an art teacher and mom has the better-paid job as an art curator and is often traveling.
   
+_Stella Diaz Has Something To Say_, Angela Dominguez 
+  * Premise: Third-grader Stella Diaz feels shy about speaking to people, but has to work up to a presentation.
+  * General thoughts: This is a delightful little book about Stella finding her voice and the courage to be friends with new people while navigating third-grade anxiety.
+  * Social commentary: Stella is Latina, and her family immigrated to Chicago from Mexico when she was just a baby. Mexican family comes to visit, and we get a taste of Mexican culture. Spanish words are sprinkled liberally in the text, but always with enough surrounding context for readers to suss out an unfamiliar word. Stella's mom is a single mom, and her dad is bad about keeping promises or paying child support. Still, he clearly loves his children.
+  
 _Clementine_ series, Sara Pennypacker
   * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
   * General thoughts: Ooh, boy, Clementine seems like a handful, which resonates with us. High-energy, smart, determined, and willful like our daughter, she would probably be classified as "spirited." There are some complex things going on in these books, and the writing is decent.
