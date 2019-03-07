@@ -1,5 +1,6 @@
 Random thoughts about some of the chapter books we've read. We've made an effort to focus on diverse, fleshed-out girl protagonists, so our selection reflects that.
 
+Is your kid so over chapter books? Well, I also started a list of [books without pictures](https://derricks.github.io/books_without_pictures).
 
 ## Early chapter books
 These are a step above early readers. Technically divided into chapters, the chapters are often stand-alone stories, but even when an arc lasts the whole book, they're short and direct and calm.
