@@ -42,7 +42,7 @@ first book, it's hinted that Hilo is both the solution and the cause of the prob
 about a basically Aryan kid come to save the sidekicks who are people of color, but the girl in that set is also a super nerd.
 
 ### _Phoebe and Her Unicorn_ series, Dana Simpson
-This series is pretty witty, but we've not exposed our daughter to it yet since it leans heavily on common grade-school experiences and sarcastic humor. Our daughter is in kindergarten. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate Phoebe and Her Unicorn), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school.
+This series is pretty witty, but note that a lot of the humor relies on sarcasm and the common experiences of grade school kids. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate _Phoebe and Her Unicorn_), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school.
 
 ### _Babymouse_ series, Jennifer & Matthew Holm
 Lots of kids love this series about a mouse going through school and having typical schoolkid adventures (jealous of friends, wants to be popular, etc.). We found it fairly dreary and stopped reading after a couple books.
