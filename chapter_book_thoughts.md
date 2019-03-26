@@ -310,7 +310,7 @@ _Unusual Chickens_ series, Kelly Jones
   
 _Wild Robot_ series, Peter Brown 
   * Premise: An intelligent, adaptive robot finds herself marooned on an island and must integrate herself into the wild animal community
-  * General thoughts: Book one of this series (all we've read as of this writing) starts out gently but ends in a tense cliffhanger. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will.
+  * General thoughts: Book one of this series (all we've read as of this writing) starts out gently but ends in a tense cliffhanger. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
 
 _Ivy and Bean_ series, Annie Barrows
@@ -351,4 +351,4 @@ _The Terrible Two_ series, Mac Barnett and John Jory
 _The Unicorn Rescue Society_ series, Adam Gidwitz
   * Premise: Two kids and a mad professor-type rescue mythical creatures. Maybe someday even unicorns.
   * General thoughts: A straightforward story that leans heavily on a lot of tropes, it nonetheless offers up a compelling narrative.
-  * Social commentary: The author uses the term “American Indian” at one point, which there's no excuse for. However, the girl character is a person of color with the unusual name of Uchenna, there are hints that the Caucasian boy Elliott lives solely with his mother and grandmother, and the professor is Peruvian.
+  * Social commentary: The girl character is a person of color with the unusual name of Uchenna, there are hints that the Caucasian boy Elliott lives solely with his mother and grandmother, and the professor is Peruvian.
