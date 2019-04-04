@@ -264,7 +264,7 @@ _Critter Club_ series, Callie Barkley
 
 _The 13-Story Treehouse_ series, Andy Griffiths and Terry Denton
   * Premise: Two boys and their next-door neighbor have wackadoodle adventures in their increasingly larger treehouse.
-  * General thoughts: My wife observed that this cuckoo bananas progression of story arcs is exactly the kind of story our daughter would tell, and I imagine that's true in many families.
+  * General thoughts: My wife observed that this cuckoo bananas progression of story arcs is exactly the kind of story our daughter would tell, and I imagine that's true in many families. Note that the kids call each other "stupidhead" and other such terms that parents might not want their kids repeating.
   * Social commentary: All the characters are Caucasian.
   
 _Agatha, Girl of Mystery_ series, Stefano Turconi
