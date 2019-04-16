@@ -1,5 +1,6 @@
 These books have minimal illustrations. Maybe none, maybe just on chapter headings. All are suitable, more or less, for kids 10 years or younger.
 
+Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
 ## _The Enchanted Forest Chronicles_, Patricia Wrede
 We picked this book up when our daughter first became interested in books without pictures, and it's a series we've all enjoyed since. Princess Cimorene doesn't like to play by normal princess rules -- she finds princesses who _do_ to be insufferable -- and so she goes to live with a dragon to save herself from princes. She quickly becomes a valued friend to Kazul and they, along with a variety of magical friends, have a wide range of adventures in and around The Enchanted Forest.

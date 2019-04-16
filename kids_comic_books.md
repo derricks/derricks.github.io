@@ -1,5 +1,7 @@
 These are comics/graphic novels we've read. We strive to find books with diverse characters and girl protagonists, so this selection reflects that. The books generally go up in order of reading level/maturity.
 
+Most of these are rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-comics).
+
 Note that the difference between comics and picture books can blur at the edges.
 
 ## Publishers You Can Trust

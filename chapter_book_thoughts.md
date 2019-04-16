@@ -1,5 +1,7 @@
 Random thoughts about some of the chapter books we've read. We've made an effort to focus on diverse, fleshed-out girl protagonists, so our selection reflects that.
 
+Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=chapter-books).
+
 Is your kid so over chapter books? Well, I also started a list of [books without pictures](https://derricks.github.io/books_without_pictures).
 
 ## Early chapter books
