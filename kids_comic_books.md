@@ -111,3 +111,6 @@ This is a rich sci-fi/fantasy epic adventure that has themes of oppression, clim
 
 ### _Science Comics_ series, various authors
 Each volume in this series is packed with lots of good information. Most have a light narrative framework (with Volcanoes being the most extreme), but they're really about showing off lots of great facts about their topic with great illustrations. 
+
+### _Maker Comics_ series, various authors
+This companion series to _Science Comics_ is off to a great start with _Bake Like a Pro_. The series will teach kids DIY activities within the context of a straightforward story.
