@@ -52,6 +52,9 @@ Lots of kids love this series about a mouse going through school and having typi
 ### _Pets on the Loose!_ series, Victoria Jamieson
 What happens when well-known rodent criminals get turned into school pets? Well, they go a bit soft. Their priorities change. And suddenly they're battling their equivalents from the older kids' classrooms. Goofy plots and elaborate capers make for an enjoyable, light read
 
+### _Misadventures of Salem Hyde_ series, Frank Cammuso
+Salem Hyde is a witch living in a non-magic world. Frank Cammuso's sight gags and wordplay are on fine display here as Salem has a variety of misadventures of the magical kind. Fun and giggle-inducing.
+
 ### _Magic Trixie_ series, Jill Thompson
 This story would be about normal childhood emotions -- jealousy about siblings, being dissatisfied with one's own life, wanting to do things you're not allowed to do -- except the Caucasian protagonist and her family are all witches of various forms. And her friends include vampires, werewolves, and mummies. Rich graphics provide lots of detail to enjoy, and there are in-jokes for the parents as well.
 
