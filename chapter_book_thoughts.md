@@ -317,7 +317,7 @@ _Unusual Chickens_ series, Kelly Jones
   
 _Wild Robot_ series, Peter Brown 
   * Premise: An intelligent, adaptive robot finds herself marooned on an island and must integrate herself into the wild animal community
-  * General thoughts: Book one of this series (all we've read as of this writing) starts out gently but ends in a tense cliffhanger. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
+  * General thoughts: Book one of this series starts out gently but ends in a tense cliffhanger; you'll want to race to get _The Wild Robot Escapes_ to see how it's resolved. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
 
 _Ivy and Bean_ series, Annie Barrows
