@@ -162,6 +162,11 @@ _Two Dogs in a Trench Coat_ series, Julie Falatko
   * Premise: Two dogs wrap themselves in a trench coat and venture out to school and the human world
   * General thoughts: Our daughter was giggling non-stop during this and pausing frequently to show us something hilarious in the book. Even I found it often amusing, but don't expect verisimilitude of any kind.
   * Social commentary: All the human characters are Caucasian, with the exception of the main teacher in the story. There's some negative views of school, but nothing too outside the norm.
+  
+ _Nick and Tesla_ series, Bob Pflugfelder
+   * Premise: Twins Nick and Tesla are sent to live with their would-be mad-scientist uncle when their parents are whisked away to work on a secret government project. At Uncle Newt's house, they discover a lab full of stuff they can use to tinker in ways that help them solve mysteries around town.
+   * General thoughts: Our daughter enjoys these stories quite a bit. Full of kid-sized humor and wacky plots, the books will keep readers turning pages. The books _also_ include build guides to build many of the projects Nick and Tesla construct. Topics range from simple electronics to spy gadgets and more.
+   * Social commentary: The Caucasian protagonists both seem equally capable of carrying out the projects, and they work together well with the neighbors (some of whom are people of color).
 
 _The Questioneers_ series, Andrea Beatty
   * Premise: Chapter book series continuing the adventures of picture book favorites Rosie Revere, Iggy Peck, and Ada Twist
