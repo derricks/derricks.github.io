@@ -2,7 +2,7 @@ Random thoughts about some of the chapter books we've read. We've made an effort
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=chapter-books).
 
-Is your kid so over chapter books? Well, I also started a list of [books without pictures](https://derricks.github.io/books_without_pictures).
+Is your kid transitioning away from chapter books? Well, I also started a list of [books without pictures](https://derricks.github.io/books_without_pictures).
 
 ## Early chapter books
 These are a step above early readers. Technically divided into chapters, the chapters are often stand-alone stories, but even when an arc lasts the whole book, they're short and direct and calm.
@@ -165,7 +165,7 @@ _Two Dogs in a Trench Coat_ series, Julie Falatko
   
  _Nick and Tesla_ series, Bob Pflugfelder
    * Premise: Twins Nick and Tesla are sent to live with their would-be mad-scientist uncle when their parents are whisked away to work on a secret government project. At Uncle Newt's house, they discover a lab full of stuff they can use to tinker in ways that help them solve mysteries around town.
-   * General thoughts: Our daughter enjoys these stories quite a bit. Full of kid-sized humor and wacky plots, the books will keep readers turning pages. The books _also_ include build guides to build many of the projects Nick and Tesla construct. Topics range from simple electronics to spy gadgets and more.
+   * General thoughts: Our daughter enjoys these stories quite a bit. Full of kid-sized humor and wacky plots, the books will keep readers turning pages. The books _also_ include build guides to build many of the projects Nick and Tesla construct. Topics range from simple electronics to spy gadgets and more. One could argue that the stories are rather thinly draped around the included projects, but they're engaging enough.
    * Social commentary: The Caucasian protagonists both seem equally capable of carrying out the projects, and they work together well with the neighbors (some of whom are people of color).
 
 _The Questioneers_ series, Andrea Beatty
@@ -319,6 +319,11 @@ _Wild Robot_ series, Peter Brown
   * Premise: An intelligent, adaptive robot finds herself marooned on an island and must integrate herself into the wild animal community
   * General thoughts: Book one of this series starts out gently but ends in a tense cliffhanger; you'll want to race to get _The Wild Robot Escapes_ to see how it's resolved. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
+  
+_The Magical Misfits_ series, Neil Patrick Harris
+  * Premise: A group of kids embodying different types of stage magic and performance solve problems in their small town.
+  * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
+  * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
 
 _Ivy and Bean_ series, Annie Barrows
   * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
