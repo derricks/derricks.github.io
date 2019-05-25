@@ -320,7 +320,7 @@ _Wild Robot_ series, Peter Brown
   * General thoughts: Book one of this series starts out gently but ends in a tense cliffhanger; you'll want to race to get _The Wild Robot Escapes_ to see how it's resolved. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
   
-_The Magical Misfits_ series, Neil Patrick Harris
+_The Magic Misfits_ series, Neil Patrick Harris
   * Premise: A group of kids embodying different types of stage magic and performance solve problems in their small town.
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
