@@ -158,6 +158,11 @@ _A Boy Called Bat_, Elana K. Arnold
   * General thoughts: This is a sweet, gentle book (the first in a series), and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
   * Social commentary: Bat is autistic, and the book tries to give you a view of what it's like to be inside Bat. There's a fair amount going on between the lines: Are kids teasing him or being sincere, his parents are divorced, and his father seems to be having a midlife crisis. You also get to see how Bat's autism affects his interactions with everyone, including kids who want to be friends and his sister.
 
+_The Becket List_, Adele Griffin
+  * Premise: City girl Rebecca Branch and her family move to the farm where her dad grew up, and everyone has to adjust to the new life.
+  * General thoughts: This is a fairly straightforward "suddenly I'm a new kid" book, but with nice sentiment about rural life. Becket -- Rebecca's new self-created nickname -- is exuberant and maybe a touch out of control in ways that evoke Clementine (see above) and Cilla Lee-Jenkins (see below). But while she wants to embrace country life, she finds adjusting to a new crowd tricky. Note (and spoiler alert) for sensitive readers: the family dog dies of old age and a heart condition near the end of the book, in a passage that's a touching conclusion.
+  * Social commentary: Both of Becket's parents work as veterinarians. There's a brief aside that a girl in the country is a bit darker (later implied to be a Latinx family) than the Caucasian Branch family, and their visiting city friends are African-American, but little is discussed in this vein.
+  
 _Two Dogs in a Trench Coat_ series, Julie Falatko
   * Premise: Two dogs wrap themselves in a trench coat and venture out to school and the human world
   * General thoughts: Our daughter was giggling non-stop during this and pausing frequently to show us something hilarious in the book. Even I found it often amusing, but don't expect verisimilitude of any kind.
