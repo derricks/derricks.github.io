@@ -141,7 +141,7 @@ _Ada Lace_ series, Emily Calandrelli
 _Nim's Island_ series, Wendy Orr 
   * Premise: A girl who lives on a remote island goes on various adventures involving her wild friends, an adventure writer, and a scientist father.
   * General thoughts: This quirky series often gets compared to _The Swiss Family Robinson_ and _Robinson Crusoe_ (minus the racism), and it's an easy comparison to make as Nim takes care of herself during the various books (in the first, her dad is adrift at sea). 
-  * Social commentary: Nim is a caring, intelligent, and very independent girl, but the first book is pretty blatant about people -- including Nim -- preferring that the hero Alex Rover is a man, even though the author Alex Rover tells Nim up front she's not.
+  * Social commentary: Nim is a caring, intelligent, and very independent girl, but the first book is pretty blatant about people -- including Nim -- preferring that the hero Alex Rover is a man, even though the author Alex Rover tells Nim up front she's not. There's a strong theme of how thoughtless people can destroy ecologies.
   
 _Stella Diaz Has Something To Say_, Angela Dominguez 
   * Premise: Third-grader Stella Diaz feels shy about speaking to people, but has to work up to a presentation.
