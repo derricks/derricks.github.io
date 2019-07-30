@@ -329,6 +329,11 @@ _The Magic Misfits_ series, Neil Patrick Harris
   * Premise: A group of kids embodying different types of stage magic and performance solve problems in their small town.
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
+  
+_Samantha Spinner_ series, Russell Ginns
+  * Premise: A girl inherits a tattered old red umbrella from her maybe-deceased uncle that contains a secret map that leads her on lots of adventures.
+  * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. This won't win any literary prizes, but our daughter read through these at an eager clip.
+  * Social commentary: The main problem-solver is a girl, but she also has a big sister who loves nothing more than shopping and fashion. The characters could be interpreted as minorities in the illustrations, though the cover illustrations really lead you to believe the kids are all white.
 
 _Ivy and Bean_ series, Annie Barrows
   * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
