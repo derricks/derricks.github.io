@@ -193,6 +193,14 @@ _Beatrice Zinker, Upside-Down Thinker_, Shelley Johannes
   * General thoughts: The writing in this is poppy, which can be a bit wearing for the course of the book. I like the fact that Beatrice's friendship issue is a bit different -- her partner in crime from 2nd grade is trying to be more "normal."
   * Social commentary: Beatrice's 3rd grade teacher is a good example of how _not_ to be compassionate towards kids. She's held up as a mean, judging figure. There's a lot of commentary on being normal or not, though a fair amount is between the lines. Beatrice is Caucasian.
   
+_Calpurnia Tate, Girl Vet_ series, Jacqueline Kelly
+
+**Note: Don't confuse with the middle-grade books _The Evolution of Calpurnia Tate_ and _The Curious World of Calpurnia Tate_, which are more mature in topic**
+
+  * Premise: A girl in 1900's Texas wants to be a scientist and veterinarian, despite the wishes of her mom and the expectations about her future.
+  * General thoughts: I really like this series about a girl who gets introduced to science by her grandfather. I particularly liked Counting Sheep, in which Calpurnia bravely asks her mom to be paid for the sheep she delivers before the actual veterinarian can get there.
+  * Social commentary: Calpurnia often bumps up against what her wealthy Caucasian family and society at large imagine as the proper roles for girls, but she is determined to go the path she wants. Book 4 talks about income disparity (the Tates are well off). The middle-reader books touch on slavery (house slaves vs field slaves and using the term “quadroon”), but that's barely hinted at in these books.
+
 _Knights vs. Dinosaurs_, Matt Phelan
   * Premise: Braggart Knights of the Round Table are sent back in time to battle dinosaurs. They have to work together to actually win, though.
   * General thoughts: This is a bit like an Onion headline or SNL skit: Funny idea, but mediocre execution. The knight battles get old quickly, and the ending feels very neat.
@@ -301,14 +309,6 @@ _Cilla Lee-Jenkins_ series, Susan Tan
   * Premise: Self-proclaimed future literary star Priscilla Lee-Jenkins grapples with the common travails of elementary school and family life, but also with racially insensitive townspeople
   * General thoughts: Cilla Lee-Jenkins is a hilarious character, especially for the adults reading the book. It doesn't take much to recognize that Cilla is outspoken and literal-minded, but some of that nuance may not be as obvious to young kids.
   * Social commentary: Cilla's father is Chinese and her mother is Caucasian, which means she is often subjected to racial insensitivity by other townspeople. People ask “what are you” and “where are you from” and are grossed out when she says she eats snails. Her parents' respective families occupy very different social spheres as well, making for not much in the way of common ground.
-
-_Calpurnia Tate, Girl Vet_ series, Jacqueline Kelly
-
-**Note: Don't confuse with the middle-grade books _The Evolution of Calpurnia Tate_ and _The Curious World of Calpurnia Tate_, which are more mature in topic**
-
-  * Premise: A girl in 1900's Texas wants to be a scientist and veterinarian, despite the wishes of her mom and the expectations about her future.
-  * General thoughts: I really like this series about a girl who gets introduced to science by her grandfather. I particularly liked Counting Sheep, in which Calpurnia bravely asks her mom to be paid for the sheep she delivers before the actual veterinarian can get there.
-  * Social commentary: Calpurnia often bumps up against what her wealthy Caucasian family and society at large imagine as the proper roles for girls, but she is determined to go the path she wants. Book 4 talks about income disparity (the Tates are well off). The middle-reader books touch on slavery (house slaves vs field slaves and using the term “quadroon”), but that's barely hinted at in these books.
 
 _The Lifters_, Dave Eggers
   * Premise: A boy moves to a new town that is undercut by many many tunnels that a girl he meets works to prop up with whatever she can find.
