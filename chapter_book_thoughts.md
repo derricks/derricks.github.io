@@ -332,7 +332,7 @@ _The Magic Misfits_ series, Neil Patrick Harris
   
 _Samantha Spinner_ series, Russell Ginns
   * Premise: A girl inherits a tattered old red umbrella from her maybe-deceased uncle that contains a secret map that leads her on lots of adventures.
-  * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. This won't win any literary prizes, but our daughter read through these at an eager clip.
+  * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. The second book in particular bogs down with details that feel more like an attempt to hit a page count than to hold the narrative together. This won't win any literary prizes, but our daughter read through these at an eager clip.
   * Social commentary: The main problem-solver is a girl, but she also has a big sister who loves nothing more than shopping and fashion. The characters could be interpreted as minorities in the illustrations, though the cover illustrations really lead you to believe the kids are all white.
 
 _Ivy and Bean_ series, Annie Barrows
