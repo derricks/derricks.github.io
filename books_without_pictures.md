@@ -1,3 +1,5 @@
+[Back to top](https://derricks.github.io/book_recommendations_index)
+
 These books have minimal illustrations. Maybe none, maybe just on chapter headings. All are suitable, more or less, for kids 10 years or younger.
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).

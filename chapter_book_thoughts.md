@@ -1,3 +1,5 @@
+[Back to top](https://derricks.github.io/book_recommendations_index)
+
 Random thoughts about some of the chapter books we've read. We've made an effort to focus on diverse, fleshed-out girl protagonists, so our selection reflects that.
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=chapter-books).
