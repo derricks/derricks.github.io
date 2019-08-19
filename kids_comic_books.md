@@ -22,6 +22,9 @@ A series by someone who clearly enjoys drawing detailed fairies and corgis in pe
 ### _Sketch Monsters_ series, Joshua Williamson
 In this simple series, kids who doodle monsters to hide their true selves have to deal with the consequences when those doodles escape the sketchbooks. Simple messages about being true to oneself are carried by simple artwork.
 
+### _Peter & Ernesto_ series, Graham Annable
+Because who doesn't love sloths? And maybe the notion that sloths are lazy is incorrect. Maybe they're just content. Thus the tone is set for Ernesto, who wants to see and do new things, and his friend Peter, who is, well, content. The personalities of the two sloths, and the choice of language and sentence structure reminds me quite a bit of the Elephant & Piggie books. The stories are appropriately silly.
+
 ### _Hilda_ series, Luke Pearson
 One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
 
