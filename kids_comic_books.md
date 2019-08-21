@@ -117,6 +117,9 @@ When Princess Mabelrose gets kidnapped by a dragon and taken far from home, she 
 ### _Lumberjanes_ series, Shannon Watters and Grace Ellis
 An enthusiastically feminist comic series starring five girls attending a summer camp where not-of-this-world creatures are common visitors to the surrounding woods. Interesting plots, and nothing but strong female characters. Even within the main five girls, there's race and class diversity, one trans girl, and one lesbian relationship. The girls "swear" by naming feminist icons. Think, "Holy Clara Booth Luce!"
 
+### _Roller Girl_, Victoria Jamieson
+This Newbery medal winner is full of all the middle-grade feelings. Feeling like you don't belong. Feeling big emotions. Feeling like your best friend is no longer your friend. Feeling nervous about middle school. Feeling the need to make an identity for yourself. And all set in a girl's burgeoning love of roller derby. My daughter was 6.5 when she read this, and I imagine some of the tween angst went over her head, but she was bouncing and cheering during the final roller derby bout all the same.
+
 ### _Cleopatra in Space_ series, Mike Maihack
 This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampire Slayer for some reason. Cleopatra -- the Cleopatra -- is a super-strong fighter, but relies on a group of friends to actually beat the ubiquitous Big Bad. There's a fair amount of middle grade/high school romantic feelings about, but overall this is a good romp with lots of action and political maneuvering.
 
