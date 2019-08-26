@@ -25,9 +25,6 @@ In this simple series, kids who doodle monsters to hide their true selves have t
 ### _Peter & Ernesto_ series, Graham Annable
 Because who doesn't love sloths? And maybe the notion that sloths are lazy is incorrect. Maybe they're just content. Thus the tone is set for Ernesto, who wants to see and do new things, and his friend Peter, who is, well, content. The personalities of the two sloths, and the choice of language and sentence structure reminds me quite a bit of the Elephant & Piggie books. The stories are appropriately silly.
 
-### _Hilda_ series, Luke Pearson
-One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
-
 ### Kevin McCloskey comics (_We Dig Worms_, _The Real Poop on Pigeons_, etc.)
 These books, published by Toon Books, are science-based comics for the younger reader. They pack a lot of information into a relatively small amount of fun text. Kids love facts, and these are good reads for them
 
@@ -36,6 +33,9 @@ If you have cats, you'll particularly appreciate this manga about a kitten who m
 
 ### _Dog Man_ series, Dav Pilkey
 The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
+
+### _Hilda_ series, Luke Pearson
+One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
 
 ### _Cucumber Quest_ series, Gigi D.G.
 This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
