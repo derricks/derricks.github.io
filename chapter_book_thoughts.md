@@ -76,6 +76,11 @@ _Zoey and Sassafras_ series, Asia Citro
   * Premise: Young girl has the ability to see magical creatures and the scientific background to help heal them
   * General thoughts: The premise for this is quite good, without resorting to the easy tropes for kids this age. I especially like the way the scientific method is called out, even if it is in the service of curing mythical beings. Perfect for fans of Doc McStuffins or stories about helping animals.
   * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work. 
+
+_Tales of Sasha_ series, Alexa Peral
+  * Premise: Sasha discovers that she's not like other members of her herd and is in fact a pegasus who is a princess from another land.
+  * General thoughts: Basically My First Misfit-Kid-Is-Secretly-Royalty-Somewhere-Else trope. The words in this are straightforward and simple, which makes it a good chapter book for a reader excited to move into this territory. The stories are banal and predictable, but it's hard to argue with their appeal for kids.
+  * Social commentary: None
   
 _Something Queer_ series, Elizabeth Levy 
   * Premise: Two girls and a basset hound solve various mysteries.
