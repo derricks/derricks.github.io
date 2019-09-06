@@ -78,8 +78,8 @@ _Zoey and Sassafras_ series, Asia Citro
   * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work. 
 
 _Tales of Sasha_ series, Alexa Peral
-  * Premise: Sasha discovers that she's not like other members of her herd and is in fact a pegasus who is a princess from another land.
-  * General thoughts: Basically My First Misfit-Kid-Is-Secretly-Royalty-Somewhere-Else trope. The words in this are straightforward and simple, which makes it a good chapter book for a reader excited to move into this territory. The stories are banal and predictable, but it's hard to argue with their appeal for kids.
+  * Premise: Sasha, a horse, discovers that she's not like other members of her herd and is in fact a pegasus who is a princess from another land.
+  * General thoughts: Basically My First Misfit-Kid-Is-Secretly-Royalty-Somewhere-Else trope. The words in this are straightforward and simple, which makes it a good chapter book for a reader excited to move into this territory. Our daughter loved this series, but adults or bigger readers may find the stories banal and predictable.
   * Social commentary: None
   
 _Something Queer_ series, Elizabeth Levy 
