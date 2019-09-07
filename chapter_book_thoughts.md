@@ -124,6 +124,11 @@ _Violet Mackerel_ series, Anna Branford
   * Premise: Violet Mackerel is a young girl who loves Small Things and concocting Theories about how Small Things affect the world.
   * General thoughts: We're big fans. The plots here can be quite nuanced, relatively speaking, and really go deep on how Violet and her siblings feel and how they work through their feelings. Plus we love how Violet tries to make even Small Things have big impacts.
   * Social commentary: Violet's Caucasian family is definitely not well-off. If not poor, per se, they are often worrying about money, and Violet's mom and siblings all work at the market to try and get money to get by. This causes jealousy when Violet meets a friend who's clearly much better off. Violet's mom is divorced (many references to “after Dad left”) and remarries within the series, which causes a lot of difficult feelings for Violet's older siblings.
+
+_Wishtree_, Kathryn Applegate
+  * Premise: Red, a tree -- a wishtree, even, where once a year people tie wishes to her branches -- narrates a moment in the life of her community of people and animals.
+  * General thoughts: This book is a standout for its core message about community and friendship as well as its imagined world of talking trees and animals. (And the ways animals name themselves is a delightful thread). There's just so much to appreciate here, and I was bawling by the momentous end of the community coming together to become stronger and save their beloved tree.
+  * Social commentary: A core part of the plot is a Muslim family who are being shunned and harassed by the community they've moved into.
   
 _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
