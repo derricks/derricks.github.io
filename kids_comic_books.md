@@ -78,6 +78,9 @@ This sweet and simple story features young Lana visiting her Aunt Mae at the sea
 ### _Cici's Journal_ series, Joris Chamblain & Aurélie Neyret
 This beautifully drawn series has rich, deep storylines set in the real world. Cici is a would-be writer who finds interesting mysteries around her and works with her friends to get to the root of them. Cici is Caucasian, as are most of the people around her (the books are imported from France or Belgium)
 
+### _Island Book_, Evan Dahm
+This story features a young alien woman who sets out to learn about a monster that seems drawn to her. She sets out from her island on to a sea that her people have always said is empty of all but the monster, but quickly discovers that there are a number of islands out there, each with their own unique species and stories. The story leaves some ends dangling, but there's a #1 on the spine, so presumably later stories will explore the world more.
+
 ### _Chasma Knights_, Boya Sun & Kate Reed Petty
 This book (maybe first in a series) drops you right into a vividly colored surreal world in which "knights" named for chemical elements bond with "toys" to make incredible devices and experiences. Except for the main character, who, as a neon knight, can't fuse with toys. Instead, she figures out how to make new and more interesting toys by scavenging parts from others. Looks like standard kid themes of isolation, finding a small number of good friends over being popular, and wanting to show up those who teased you. There's also an undercurrent of how destructive capitalism can be.
 
