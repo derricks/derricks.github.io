@@ -130,6 +130,11 @@ _Wishtree_, Katherine Applegate
   * General thoughts: This book is a standout for its core message about community and friendship as well as its imagined world of talking trees and animals. (And the ways animals name themselves is a delightful thread). There's just so much to appreciate here, and I was bawling by the momentous end of the community coming together to become stronger and save their beloved tree.
   * Social commentary: A core part of the plot is a Muslim family who are being shunned and harassed by the community they've moved into.
   
+_Dory Fantasmagory_ series, Abby Hanlon
+  * Premise: Highly imaginative girl navigates a rich fantasy world that wraps around her day-to-day normal-kid adventures.
+  * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
+  * Social commentary: Dory and her family/friends are all Caucasian.
+      
 _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
   * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
@@ -199,6 +204,11 @@ _Bea Garcia_ series, Deborah Zemke
   * Premise: Daily adventures of an artistic girl
   * General thoughts: We like this series and how it incorporates Bea's drawings as part of (and not just alongside) the text.
   * Social commentary: Bea Garcia is Latina.
+  
+_Ivy and Bean_ series, Annie Barrows
+  * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
+  * General thoughts: This is a popular series and one of the first chapter book series we hit upon. The solutions the kids come up with feel realistic but also totally bonkers to adults.
+  * Social commentary: These aren't nice and sweet girls or kids. Bean is also always messy. It's refreshing to see girls who are just normal kids and not unrealistically sweet and kind. Suburban neighborhood with Caucasian kids.
 
 _Beatrice Zinker, Upside-Down Thinker_, Shelley Johannes
   * Premise: A girl whose creativity is shown by literally having her think best when upside-down has school adventures
@@ -307,11 +317,6 @@ _Agatha, Girl of Mystery_ series, Stefano Turconi
 ## Where The Line Between Chapter Books and Normal Books With Illustrations Fades
 These books are still chapter books in general, but one does begin to wonder in these books where the line is between "chapter book" and "just a book".
 
-_Dory Fantasmagory_ series, Abby Hanlon
-  * Premise: Highly imaginative girl navigates a rich fantasy world that wraps around her day-to-day normal-kid adventures.
-  * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
-  * Social commentary: Dory and her family/friends are all Caucasian.
-  
 _Bob_, Wendy Mass & Rebecca Stead 
   * Premise: A magical creature has stayed put in a closet ever since the owner's granddaughter told him to. But that was five years ago, and she's just returned, having forgotten all about him.
   * General thoughts: This is an interesting premise that quickly dodges a lot of the easy tropes, though there are still some to be found. Bob's story, and Livy's too, is pieced together by the two of them throughout the book, and the ending is quite a surprise.
@@ -351,11 +356,6 @@ _Katt vs. Dogg_, James Patterson and Chris Grabenstein
   * Premise: A young katt and a young dogg (anthropomorphized versions of our most common pets) get lost in the woods and have to work together despite being sworn enemies.
   * General thoughts: This is a pretty blatant "Enemy Mine" trope, with the katt and dogg flinging insults at each other until they figure out they should work together to get out of the wilderness and back to their families. Despite the anthropomorphism and the really odd hybrids of animal species who have managed to get along, unlike the famously antagonistic katts and doggs, this book manages to introduce some actual trivia about our non-anthropomorphic cats and dogs. There's a small twist at the end, but it all works out for the best, and the two become fast friends who work to educate other katt and dogg families about their prejudices.
   * Social commentary: The raging hatred between the katts and doggs is a skin you could stretch over any two groups who hate each other based on willful ignorance. Some journalists might not like the portrayal of the press as sensationalist and exploitive, but those of us with a cynical view of the fifth estate will probably see much truth in the machinations of the ferret journalist.
-
-_Ivy and Bean_ series, Annie Barrows
-  * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
-  * General thoughts: This is a popular series and one of the first chapter book series we hit upon. The solutions the kids come up with feel realistic but also totally bonkers to adults.
-  * Social commentary: These aren't nice and sweet girls or kids. Bean is also always messy. It's refreshing to see girls who are just normal kids and not unrealistically sweet and kind. Suburban neighborhood with Caucasian kids.
 
 _Thea Sisters_ series, "Thea Stilton"
   * Premise: Five well-to-do mouse girl characters go on a seemingly endless stream of adventures around the world where they solve mysteries and fight crime.
