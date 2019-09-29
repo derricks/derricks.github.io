@@ -351,6 +351,11 @@ _Samantha Spinner_ series, Russell Ginns
   * Premise: A girl inherits a tattered old red umbrella from her maybe-deceased uncle that contains a secret map that leads her on lots of adventures.
   * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. The second book in particular bogs down with details that feel more like an attempt to hit a page count than to hold the narrative together. This won't win any literary prizes, but our daughter read through these at an eager clip.
   * Social commentary: The main problem-solver is a girl, but she also has a big sister who loves nothing more than shopping and fashion. The characters could be interpreted as minorities in the illustrations, though the cover illustrations really lead you to believe the kids are all white.
+  
+_Nikki Tesla and the Ferret-Proof Death Ray_, Jess Keating
+  * Premise: The world's smartest kids are recruited into an academy that routinely saves the world.
+  * General thoughts: This is a novel take on the "new kid at school" genre of middle-grade fiction. The school in this case is compared to the Professor X School for Gifted Youngsters, and comprises seven incredibly gifted children. Who fight against supervillains. The first book sets up a series, which promises to be a fun romp. Actual science and trivia are sprinkled about, but this is really just a fun adventure celebrating ludicrously smart kids.
+  * Social commentary: Two people of color are included in the seven kids, and four of the seven are girls. But they go to a totally luxe school with its own private jet. 
 
 _Katt vs. Dogg_, James Patterson and Chris Grabenstein
   * Premise: A young katt and a young dogg (anthropomorphized versions of our most common pets) get lost in the woods and have to work together despite being sworn enemies.
