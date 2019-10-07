@@ -189,6 +189,11 @@ _Two Dogs in a Trench Coat_ series, Julie Falatko
    * Premise: Twins Nick and Tesla are sent to live with their would-be mad-scientist uncle when their parents are whisked away to work on a secret government project. At Uncle Newt's house, they discover a lab full of stuff they can use to tinker in ways that help them solve mysteries around town.
    * General thoughts: Our daughter enjoys these stories quite a bit. Full of kid-sized humor and wacky plots, the books will keep readers turning pages. The books _also_ include build guides to build many of the projects Nick and Tesla construct. Topics range from simple electronics to spy gadgets and more. One could argue that the stories are rather thinly draped around the included projects, but they're engaging enough.
    * Social commentary: The Caucasian protagonists both seem equally capable of carrying out the projects, and they work together well with the neighbors (some of whom are people of color). The characterizations rely on some standard tropes: the short, squat security guard with a small ponytail; the slightly slobby curmudgeonly clerk at some sort of "loose parts" store full of components for projects.
+   
+ _The Night Fairy_, Laura Amy Schlitz
+   * Premise: A night fairy named Flory has a run-in with a bat that gets her wings bitten off, and she decides to try life as a day fairy.
+   * General thoughts: This classic story has a lot of depth. While one could read it as a straightforward adventure, the text offers a lot to dig into, even as just small bits and bites. For instance, because Flory uses her stinging spell so much, she takes on a more sharp, pointed appearance. She is selfish and haggling at the beginning of the book, only later learning how to do things just because they're the right thing to do. Her magic is a total deus ex machina, always giving her exactly the magic she needs when she needs it, but that keeps the story moving well enough.
+   * Social commentary: Flory is a girl who decides to strike out on her own.
 
 _The Questioneers_ series, Andrea Beatty
   * Premise: Chapter book series continuing the adventures of picture book favorites Rosie Revere, Iggy Peck, and Ada Twist
