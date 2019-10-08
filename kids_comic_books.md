@@ -138,5 +138,8 @@ This is a rich sci-fi/fantasy epic adventure that has themes of oppression, clim
 ### _Science Comics_ series, various authors
 Each volume in this series is packed with lots of good information. Most have a light narrative framework (with Volcanoes being the most extreme), but they're really about showing off lots of great facts about their topic with great illustrations. 
 
+### _Earth Before Us_ series, Abby Howard
+A must-read for any fan of prehistory, this series spans the earliest animals, the dinosaurs, and the large mammals of relatively recent geologic time. Detailed drawings and pronunciation guides will draw in readers of all ages, and even grownups will probably learn some things. The story, such as it is, involves a young girl of color finding out that her next-door neighbor is a Caucasian paleontologist who travels through time via portals in her (and other) recycling bins. But largely the story takes a back seat to the extensive catalog of which animals are alive when.
+
 ### _Maker Comics_ series, various authors
 This companion series to _Science Comics_ is off to a great start with _Bake Like a Pro_. The series will teach kids DIY activities within the context of a straightforward story.
