@@ -130,6 +130,11 @@ _Wishtree_, Katherine Applegate
   * General thoughts: This book is a standout for its core message about community and friendship as well as its imagined world of talking trees and animals. (And the ways animals name themselves is a delightful thread). There's just so much to appreciate here, and I was bawling by the momentous end of the community coming together to become stronger and save their beloved tree.
   * Social commentary: A core part of the plot is a Muslim family who are being shunned and harassed by the community they've moved into.
   
+_Anna Wang_ series, Andrea Chang
+  * Premise: Bookworm and sewing enthusiast Anna Wang goes through her life.
+  * General thoughts: I really liked the writing in this book. The simple prose is good for beginning readers, but it also fits with Anna's introspective, quiet nature. It also allows for a lot of reading between the lines. She's a good character who is kind and thoughtful but also isn't pushed around easily. T
+  * Social commentary: Anna is American-born Chinese who is, at first, embarassed my her mom's imperfect English and the cleaning job she uses to pay for her nursing school. In the first book, her friend's family seems to be having a hard time of it, with her dad often yelling and breaking things and her mom stashing her kids at friends' houses as she separates from him. There are observations about Chinese culture and the way Caucasian classmates interact with them. "Do you speak Japanese?" asks one schoolmate.
+  
 _Dory Fantasmagory_ series, Abby Hanlon
   * Premise: Highly imaginative girl navigates a rich fantasy world that wraps around her day-to-day normal-kid adventures.
   * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
