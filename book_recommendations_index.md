@@ -6,6 +6,7 @@ I keep Goodreads shelves with ratings of many of the books we've read.
   * [Chapter books (including larger illustrated books)](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=chapter-books)
   * [Comics and Graphic Novels](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-comics)
   * [Books without pictures](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures)
+  * [Books about kids and civic engagment](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-and-civic-engagement)
   
 For longer descriptions, I have pages for the last three categories. Some books show up here that I forgot to put into Goodreads, but these lists don't include numeric ratings. You can probably figure out what I think of the book from the description, though.
 
