@@ -106,6 +106,11 @@ _Princess Posey_ series, Stephanie Greene
   * Premise: A first-grader dons a tutu to give herself confidence as the imaginary "Princess Posey" and has typical first-grade adventures
   * General thoughts: The writing in this is decent, and the adventures relatable. Neither particularly bad nor good.
   * Social commentary: The Caucasian girl is given a lot of pink, sparkly things. Not much deviation from gender norms here.
+  
+_Miss Bunsen's School for Brilliant Girls_, Erica-Jane Waters
+  * Premise: Girls who attend a rundown school for brilliant girls make wild inventions.
+  * General thoughts: I personally found the first of these to be fairly uninspired, with characters that are basically just over-the-top caricatures when they're not one-dimensional.
+  * Social commentary: While the idea of brilliant, inventive girls is certainly nice to see, the inventions they actually come up with are so unrealistic they might as well be spells from Heidi Heckelbeck's book. For an inventive girl making more realistic inventions, check out the _Ada Lace_ series.
 
 ## Big Kid Books
 These books still have largish type, but you'll find more complex emotions and interactions. While still obviously chapter books based on the length, illustrations, complexity, and type size, these are beginning to be more-than-one-sitting books. Characters are usually of early elementary school age.
