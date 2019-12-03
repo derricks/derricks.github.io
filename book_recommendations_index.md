@@ -13,3 +13,12 @@ For longer descriptions, I have pages for the last three categories. Some books 
   * [Chapter books (including larger illustrated books)](https://derricks.github.io/chapter_book_thoughts)
   * [Comics and Graphic Novels](https://derricks.github.io/kids_comic_books)
   * [Books without pictures](https://derricks.github.io/books_without_pictures)
+  
+Here are some of the sources I use for finding new books:
+
+  * [The Horn Book](https://www.hbook.com/): Something like eighty percent of books I find come from this long-respected publication (which is aimed primarily at librarians). While I have a subscription, even their newsletters and blogs are filled with reviews. They often highlight books by and about people of color.
+  * [A Mighty Girl](https://www.amightygirl.com/): This site is heavily focused on building up strong, confident girls. They often have great lists of books in some theme (fantasy, say) featuring "mighty girls."
+  * [Geekdad's Stack Overflow Column](https://geekdad.com/category/columns/stack-overflow/): Jonathan H. Liu's reviews here especially align with my own tastes and interests, but there's often good thought put into a wide range of books.
+  * [Readbrightly.com](https://www.readbrightly.com/): I often find gems tucked away in their many lists, most of which you can get via email. Note that the contributor list is light on people of color, and I feel like their recommendations reflect that (i.e., I don't often see diverse books in their suggestions).
+  * [NYT Middle Grade Bestseller List](https://www.nytimes.com/books/best-sellers/childrens-middle-grade-hardcover/): While the NYT bestseller list has its problems (mass appeal doesn't always intersect with quality, and books can sit there for a long time, crowding out others), this is a good source of books that your kid's friends might be talking about.
+  * Your local librarian! But if your librarians are anything like ours, be aware that asking them for recommendations is like turning on a firehose.
