@@ -380,7 +380,7 @@ _Katt vs. Dogg_, James Patterson and Chris Grabenstein
 _The Trumpet of the Swan_, E.B. White
   * Premise: A _bildungsroman_ about a voiceless trumpeter swan who finds a way to communicate with an actual trumpet.
   * General thoughts: You probably know White's _other_ books, but I hadn't read this one before. It's a bit of an absurd story, but it's an engaging plot and of course White's writing about the natural world is lovely.
-  * Social commentary: White is of his time, and writes women in the way you'd expect. Our hero's mother does nothing but be a mother, and the love of his life is a swan who does nothing in the book except be pretty, admire the material goods of the swan in question, and have babies. 
+  * Social commentary: White is of his time, and writes women in the way you'd expect. The business owners and adventurers are all men. The only woman with a significant speaking part is a school teacher. I don't even think Serena, Louis' love, speaks in the book. All we're told about her is that she's pretty and admires his possessions. We never even learn the backstory that brings her coincidentally to a far-flung point with Louis.
 
 _Thea Sisters_ series, "Thea Stilton"
   * Premise: Five well-to-do mouse girl characters go on a seemingly endless stream of adventures around the world where they solve mysteries and fight crime.
