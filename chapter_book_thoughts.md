@@ -376,6 +376,11 @@ _Katt vs. Dogg_, James Patterson and Chris Grabenstein
   * Premise: A young katt and a young dogg (anthropomorphized versions of our most common pets) get lost in the woods and have to work together despite being sworn enemies.
   * General thoughts: This is a pretty blatant "Enemy Mine" trope, with the katt and dogg flinging insults at each other until they figure out they should work together to get out of the wilderness and back to their families. Despite the anthropomorphism and the really odd hybrids of animal species who have managed to get along, unlike the famously antagonistic katts and doggs, this book manages to introduce some actual trivia about our non-anthropomorphic cats and dogs. There's a small twist at the end, but it all works out for the best, and the two become fast friends who work to educate other katt and dogg families about their prejudices.
   * Social commentary: The raging hatred between the katts and doggs is a skin you could stretch over any two groups who hate each other based on willful ignorance. Some journalists might not like the portrayal of the press as sensationalist and exploitive, but those of us with a cynical view of the fifth estate will probably see much truth in the machinations of the ferret journalist.
+  
+_The Trumpet of the Swan_, E.B. White
+  * Premise: A _bildungsroman_ about a voiceless trumpeter swan who finds a way to communicate with an actual trumpet.
+  * General thoughts: You probably know White's _other_ books, but I hadn't read this one before. It's a bit of an absurd story, but it's an engaging plot and of course White's writing about the natural world is lovely.
+  * Social commentary: White is of his time, and writes women in the way you'd expect. Our hero's mother does nothing but be a mother, and the love of his life is a swan who does nothing in the book except be pretty, admire the material goods of the swan in question, and have babies. 
 
 _Thea Sisters_ series, "Thea Stilton"
   * Premise: Five well-to-do mouse girl characters go on a seemingly endless stream of adventures around the world where they solve mysteries and fight crime.
