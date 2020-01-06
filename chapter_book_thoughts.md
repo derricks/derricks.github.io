@@ -253,6 +253,11 @@ _Jada Jones_ series, Kelly Starling Lyons
   * General thoughts: Good exploration of feelings
   * Social commentary: Jada is an African-American girl who enjoys science and is respected as a leader in her class.
   
+_Catlantis_, Starobinets
+  * Premise: A purebred ginger cat embarks on a time-spanning journey to rediscover the flower that gives cats nine lives.
+  * General thoughts: The plot in this book, translated from the Russian, is both bonkers and implausible (I mean, beyond the time travel aspects). But it's full of cat puns and cats doing cat things, so it will appeal to cat-lover readers like my daughter.
+  * Social commentary: The female love interest doesn't seem to have much agency in the book, and while she agrees to marry our hero, there's another cat who assumes he can marry her if he wins the flower as a trophy. See Feminist Frequency's [https://feministfrequency.com/video/women-as-reward/](Women as Trope episode) to get a sense of the cultural significance of women (even feline ones) treated like trophies themselves.
+  
 _Isadora Moon_ series, Harriet Muncaster
   * Premise: Half-vampire, half-fairy girl has standard lower grade school adventures but with supernatural elements
   * General thoughts: This is a cute series about a girl who straddles two different worlds. I'm sure it will appeal to those former Goth parents who have to deal with fairy-loving (and not Faerie-loving) children. Note that the most notable aspect of vampires is solved by having her dad drink "red juice."
