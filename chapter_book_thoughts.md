@@ -372,6 +372,11 @@ _The Magic Misfits_ series, Neil Patrick Harris
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
   
+_Pip Bartlett_ series, Maggie Stiefvater and Jackson Pearce
+  * Premise: Titular Pip Bartlett can talk to magical animals, of which there are many in her world, and she has adventures fueled by this ability.
+  * General thoughts: This is a charming little series, driven by the common fantasy of many kids to be able to talk to animals. The animal characters are quirky and amusing, and Pip's unique ability gives voice to animals who have wry observations about the worlds around them. A good next step from _Zoey and Sassafrass_.
+  * Social commentary: Virtually all the lead characters are women or girls, though women who are veterinarians and girls talking to adorable magical creatures aren't exactly breaking any stereotypes. I could wish that Pip solves problems through sheer cleverness rather than the extra information from animals that only she is privy to, but that is part of the fantasy, I suppose.
+  
 _Samantha Spinner_ series, Russell Ginns
   * Premise: A girl inherits a tattered old red umbrella from her maybe-deceased uncle that contains a secret map that leads her on lots of adventures.
   * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. The second book in particular bogs down with details that feel more like an attempt to hit a page count than to hold the narrative together. This won't win any literary prizes, but our daughter read through these at an eager clip.
