@@ -87,6 +87,12 @@ This beautifully drawn series has rich, deep storylines set in the real world. C
 ### _Island Book_, Evan Dahm
 This story features a young alien woman who sets out to learn about a monster that seems drawn to her. She sets out from her island on to a sea that her people have always said is empty of all but the monster, but quickly discovers that there are a number of islands out there, each with their own unique species and stories. The story leaves some ends dangling, but there's a #1 on the spine, so presumably later stories will explore the world more.
 
+### _Zita the Space Girl_ series, Ben Hatke
+Look up "comics books for girls" and Zita is likely to be near the top of the list. We're big Ben Hatke fans, largely because of this sci-fi adventure. Zita and a friend (a boy, both Caucasian) get sucked into a spacefaring civilization and have to make their way back home. Colorful characters in an ensemble cast support the friends as they navigate the new worlds. We read it to our daughter when she was quite young, but she recently re-read it herself by doing one book a night.
+
+### _Mighty Jack_ series, Ben Hatke
+There are some intersection points with the Zita series (read that series first to get the jokes) but this is a standalone fantasy series that focuses on a Caucasian boy, his autistic sister, and a fierce Caucasian friend (girl) who lives down the street. The three plant a garden with out-of-this-world (literally) seeds that create a range of adventures.
+
 ### _Chasma Knights_, Boya Sun & Kate Reed Petty
 This book (maybe first in a series) drops you right into a vividly colored surreal world in which "knights" named for chemical elements bond with "toys" to make incredible devices and experiences. Except for the main character, who, as a neon knight, can't fuse with toys. Instead, she figures out how to make new and more interesting toys by scavenging parts from others. Looks like standard kid themes of isolation, finding a small number of good friends over being popular, and wanting to show up those who teased you. There's also an undercurrent of how destructive capitalism can be.
 
@@ -116,12 +122,6 @@ This two-book series, in which the two protagonists work to restore a purple mon
 
 ### _Brave Chef Brianna_, Sam Sykes & Selina Espiritu
 Brianna's father is a world-famous chef, and he challenges his kids to set up their own shops and compete for the right to use his branding going forward. Brianna sets herself up as a restaurateur in a city mostly populated by "monsters." There are clear notes about prejudice and tolerance and feeling good about one's self and believing in something here. Brianna (Caucasian, like her siblings) is full of self-doubt, and uses lots of mean words to describe herself, but ultimately triumphs -- if not in the way readers anticipate.
-
-### _Zita the Space Girl_ series, Ben Hatke
-Look up "comics books for girls" and Zita is likely to be near the top of the list. We're big Ben Hatke fans, largely because of this sci-fi adventure. Zita and a friend (a boy, both Caucasian) get sucked into a spacefaring civilization and have to make their way back home. Colorful characters in an ensemble cast support the friends as they navigate the new worlds. We read it to our daughter when she was quite young, but she recently re-read it herself by doing one book a night.
-
-### _Mighty Jack_ series, Ben Hatke
-There are some intersection points with the Zita series (read that series first to get the jokes) but this is a standalone fantasy series that focuses on a Caucasian boy, his autistic sister, and a fierce Caucasian friend (girl) who lives down the street. The three plant a garden with out-of-this-world (literally) seeds that create a range of adventures.
 
 ### _Abigail and the Snowman_, Roger Langridge
 Abigail (possibly Caucasian, possibly of color -- the shading makes it hard to tell) befriends a yeti who has escaped some sort of secret government lab. There's violence here (helicopters being shot down) along with a frightening moment where it seems like the yeti has died, but it all works out on the end.
