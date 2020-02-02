@@ -372,6 +372,11 @@ _The Magic Misfits_ series, Neil Patrick Harris
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
   
+_Weird Little Robots_, Carolyn Crimi
+  * Premise: Awkward Caucasion new kid Penny Rose befriends "class weirdo" Lark (also Caucasian), and the two discover that Penny Rose's robots have taken on a life of their own.
+  * General thoughts: The middle-grade drama here is pretty typical: Choosing between one's true good friend and a group that seems good on the surface but requires you to make fun of your actual best friend. I love that Penny Rose's robots are created from parts she scavenges from everywhere, as contrasted with the mean boy who uses off-the-shelf robot stuff. I enjoyed the book and the two main characters -- Lark will remind many of Luna Lovegood. I'm a bit annoyed by books that purport to talk about science but then make it all "work" by using magic. Contrast with _Zoey and Sassafras_, where the science is real and doesn't need magical creatures to make it so.
+  * Social commentary: Girls tinkering and doing science is always a welcome sight, and I like how Lark blends a love of ornithology with art and creativity (and Penny Rose's robots are creative, too!). I believe only one of the side characters is a person of color.
+  
 _Pip Bartlett_ series, Maggie Stiefvater and Jackson Pearce
   * Premise: Titular Pip Bartlett can talk to magical animals, of which there are many in her world, and she has adventures fueled by this ability.
   * General thoughts: This is a charming little series, driven by the common fantasy of many kids to be able to talk to animals. The animal characters are quirky and amusing, and Pip's unique ability gives voice to animals who have wry observations about the worlds around them. A good next step from _Zoey and Sassafrass_.
