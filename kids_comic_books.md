@@ -43,6 +43,9 @@ One of our favorite series. The adventures of a Caucasian blue-haired girl who l
 ### _Cucumber Quest_ series, Gigi D.G.
 This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
 
+### _Princess Princess Ever After_, Katie O'Neill
+A decidedly feminist take on the standard fairy tale, this quick read features a woman of color rescuing a Caucasian princess in a tower. Said princess has been locked there by her older sister, who doesn't want competition for the throne and who denigrates her younger sibling by calling her fat and stupid. There's a fair amount of "not nice" language, like the aforementioned "fat" and "stupid" and a prince the women nickname Butthead. The two princesses end up by getting married.
+
 ### _Sea Sirens: A Trot and Cap'n Bill Adventure_, Amy Chu & Janet Lee
 This richly drawn comic (whose style evokes _Fish Girl_ below) features Trot, a Vietnamese-American surfer, and her cat Cap'n Bill as the two discover the underwater queendom of the sea sirens and their mortal enemies the Serpents. The tale draws inspiration from a number of sources, including Vietnamese folklore, and follows a number of tropes along the way. Still, there's a surprise twist in store for the reader. Note that her grandfather suffers from dementia, and the plot is often driven by his confused lapses.
 
