@@ -31,6 +31,9 @@ These books, published by Toon Books, are science-based comics for the younger r
 ### _Chi's Sweet Home_ series, Kanata Konami
 If you have cats, you'll particularly appreciate this manga about a kitten who moves in with a Japanese family (despite a no-pets rule in their apartment) and has adventures around the neighborhood with other cats and dogs. Konami perfectly captures the mindset of a cat and the humans who see it. Warning, if you read it aloud to your kids, you'll be reading a lot of sound effects.
 
+## _CatStronauts_ series, Drew Brockington
+I mean, it's called _CatStronauts_ and the primary characters are Waffles, Pom-Pom, Blanket, and Major Meowster. So you kind of know what you're signing up for, don't you? The adventures remind me of the Rocky and Bullwinkle genre, wherein something tremendous is at stake and the heroes are the ones to execute a somewhat bonkers plan to solve the problem. That said, Brockington loves space and adds a veneer of truthfulness to the stories: In the first one, for example, the cats need to build a space-based solar power station to transmit energy to the earth on microwaves -- a real concept -- and when the rocket launches, there's an extended sequence in which all the cats in Mission Control give their go/no go signals. But, in the end, it's cats being silly space travelers.
+
 ### _Dog Man_ series, Dav Pilkey
 The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
 
