@@ -162,6 +162,9 @@ This is a rich sci-fi/fantasy epic adventure that has themes of oppression, clim
 ### _Science Comics_ series, various authors
 Each volume in this series is packed with lots of good information. Most have a light narrative framework (with Volcanoes being the most extreme), but they're really about showing off lots of great facts about their topic with great illustrations.
 
+### _All's Faire in Middle School_, Victoria Jamieson
+Parents note: The word "sex" is used in here, and the middle grade girls read steamy passages from an older sibling's book that are clearly leading up to sex. Aside from that, this is a typically warm and sympathetic Jamieson book focused on Imogene, who was homeschooled until middle grade and whose parents work at the local Renaissance Faire. She tries to navigate middle school's many challenges, framing them in the context of a Middle Age story of knights and dragons and getting advice from her "Faire-mily." The middle grade tropes are in full force: befriending the popular girl and learning she's actually horrible, odd thoughts about boys, insecurity about her clothes and house, and finding a true friend after doing something mean to her as prompted by the queen bee mean girl. Meanwhile, you'll get some behind-the-scenes views of Ren Faires and how they work.
+
 ### _Earth Before Us_ series, Abby Howard
 A must-read for any fan of prehistory, this series spans the earliest animals, the dinosaurs, and the large mammals of relatively recent geologic time. Detailed drawings and pronunciation guides will draw in readers of all ages, and even grownups will probably learn some things. The story, such as it is, involves a young girl of color finding out that her next-door neighbor is a Caucasian paleontologist who travels through time via portals in her (and other) recycling bins. But largely the story takes a back seat to the extensive catalog of which animals are alive when.
 
