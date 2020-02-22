@@ -90,6 +90,9 @@ This sweet and simple story features young Lana visiting her Aunt Mae at the sea
 ### _Amulet_ series, Kazu Kibuishi
 Google "graphic novels for kids" and this series is certain to show up early and often. We know at least one family who credits this popular series with getting their kid to read, and it's not hard to see why. It's an intense epic fantasy that takes place in a surreal, vividly imagined world. The Caucasian female protagonist finds a magic stone her great-grandfather left in his house, and she enters the realm where he disappeared to. His homemade robots become both servants and allies as she battles against the malicious elves and sinister forces at work among the other Stonekeepers. I particularly like that the stone isn't just default good. It shapes itself to its wielder's desires and heart, even as it tries to tempt the wielder to take -- or perhaps relinquish -- control.
 
+### _Pashmina_, Nidhi Chanani
+Indian-American protagonist Priyana has lots of questions about India, her father, and her mother's life before her. Questions her mom simply doesn't want to answer. But Priyana finds a magic-infused pashmina that gives her a glimpse of that other world and furthers her desire to go to India. The pending birth of a niece gives her an excuse, and together she and her aunt track down the history of the pashmina. In some ways, this book feels like a disjointed narrative that exists to tell the story of a factory fire that killed a number of women in India. Older readers and certainly adults will see a lot of sexism in the male attitudes towards women.
+
 ### _Cici's Journal_ series, Joris Chamblain & Aurélie Neyret
 This beautifully drawn series has rich, deep storylines set in the real world. Cici is a would-be writer who finds interesting mysteries around her and works with her friends to get to the root of them. Cici is Caucasian, as are most of the people around her (the books are imported from France or Belgium)
 
