@@ -153,6 +153,9 @@ This Newbery medal winner is full of all the middle-grade feelings. Feeling like
 ### _Cleopatra in Space_ series, Mike Maihack
 This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampire Slayer for some reason. Cleopatra -- the Cleopatra -- is a super-strong fighter, but relies on a group of friends to actually beat the ubiquitous Big Bad. There's a fair amount of middle grade/high school romantic feelings about, but overall this is a good romp with lots of action and political maneuvering.
 
+### _Princeless_ series, Jeremy Whitley
+If _Lumberjanes_ isn't feminist enough for you, be sure to check out this series in which princess Adrienne (who is Black) effects her own rescue from the tower her sexist, misogynist father put her into. After convincing her guardian dragon to side with her and befriending a woman dwarf blacksmith, the princess sets off to rescue her sisters and others she finds locked up. Her brother, meanwhile, is a disappointment to their father because he wants to go into theater. The first book features an amusing look at "traditional" armor for women that might require an explanation if your child hasn't seen the typical ludicrous bikini armor of male-gaze artwork.
+
 ### _Mouse Guard_ series, David Petersen
 This complex adventure features mice in a medieval-style world warding off predators but also political unrest within the mouse kingdoms. The titular Guard are fierce, loyal soldiers. The artwork in this is rich, though it can be hard to see what's going on in the many fight scenes as the camera twists and turns.
 
