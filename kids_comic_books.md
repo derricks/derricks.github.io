@@ -159,6 +159,9 @@ If _Lumberjanes_ isn't feminist enough for you, be sure to check out this series
 ### _Mouse Guard_ series, David Petersen
 This complex adventure features mice in a medieval-style world warding off predators but also political unrest within the mouse kingdoms. The titular Guard are fierce, loyal soldiers. The artwork in this is rich, though it can be hard to see what's going on in the many fight scenes as the camera twists and turns.
 
+## _Rickety Stitch & The Gelatinous Goo_ series, James Parks
+While animated skeletons are common enough in Rickety Stitch's land, he seems to be the only one who talks and sings. The series follows him and his best friend, The Gelatinous Goo (a blob-shaped creature that only Rickety can understand) as they seek to find out why Rickety is different. Black-and-white dream sequences give the readers the ability to infer some details, but they're still confusing and opaque. I like that this series imagines a world after big wars between good and evil and the life the normal denizens lead in the uncivilized world. And props to the production team for actually creating recordings of some of the original songs featured in the book.
+
 ### _5 Worlds_ series, Mark Siegel, Alexis Siegel, lots of other people
 This is a rich sci-fi/fantasy epic adventure that has themes of oppression, climate change, and more. We ate these books up and are eagerly awaiting the next one. The three main protagonists (drawn in different races) include Oona, a sand dancer who can manipulate the magical sand scattered around the 5 Worlds; An Tzu, a boy from the slums of the main world who is slowly dying from a "fading sickness" that causes him to be more invisible over time; and Jax Amboy, a starball player who An Tzu worships. The three have to work together to light the "5 beacons" established by the old gods. There are surprises aplenty in these books.
 
