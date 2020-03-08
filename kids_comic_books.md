@@ -147,6 +147,9 @@ When Princess Mabelrose gets kidnapped by a dragon and taken far from home, she 
 ### _Lumberjanes_ series, Shannon Watters and Grace Ellis
 An enthusiastically feminist comic series starring five girls attending a summer camp where not-of-this-world creatures are common visitors to the surrounding woods. Interesting plots, and nothing but strong female characters. Even within the main five girls, there's race and class diversity, one trans girl, and one lesbian relationship. The girls "swear" by naming feminist icons. Think, "Holy Clara Booth Luce!"
 
+### _Goldie Vance_ series, Hope Larson
+In theory, Marigold "Goldie" Vance works as a valet at the lush Crossed Palms resort in Florida where her dad is the manager. But she _actually_ dreams of being a detective, and manages to embroil herself and her fellow hotel staff in a wide range of crime-solving activities. Goldie's got a lot of spunk, and only hesitates briefly when she needs to, for instance, "borrow" a car to help her solve a case. While Larson's cast is diverse, it doesn't necessarily reflect the 1960s Florida it's so clearly set in. An African-American acting as hotel manager? His biracial daughter from a mixed marriage? A potential queer relationship? Maybe it's actually set in a parallel universe where bigotry was nowhere to be seen. Anyway, the mysteries are solid and take a range of twists and turns along the way.
+
 ### _Roller Girl_, Victoria Jamieson
 This Newbery medal winner is full of all the middle-grade feelings. Feeling like you don't belong. Feeling big emotions. Feeling like your best friend is no longer your friend. Feeling nervous about middle school. Feeling the need to make an identity for yourself. And all set in a girl's burgeoning love of roller derby. My daughter was 6.5 when she read this, and I imagine some of the tween angst went over her head, but she was bouncing and cheering during the final roller derby bout all the same.
 
