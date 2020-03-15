@@ -138,6 +138,9 @@ This two-book series, in which the two protagonists work to restore a purple mon
 ### _Brave Chef Brianna_, Sam Sykes & Selina Espiritu
 Brianna's father is a world-famous chef, and he challenges his kids to set up their own shops and compete for the right to use his branding going forward. Brianna sets herself up as a restaurateur in a city mostly populated by "monsters." There are clear notes about prejudice and tolerance and feeling good about one's self and believing in something here. Brianna (Caucasian, like her siblings) is full of self-doubt, and uses lots of mean words to describe herself, but ultimately triumphs -- if not in the way readers anticipate.
 
+### _Sunny Side Up_, Jennifer L. Holm
+This is a pretty light book when you consider that drug addiction is a prominent theme. When we first meet Sunny, she's been sent to spend the summer of 1976 with her grandfather in a retirement community in Florida. She soon meets another kid, the groundskeeper's child, and the two have standard summer idyll adventures: reading comics, collecting golf balls, scrabbling for money, and so on. But periodic flashbacks tell the reader how she ended up there -- her parents are trying to help her drug-addicted brother, and they want her clear of what will certainly be a hard journey for him. The tension of keeping secrets finally causes her to explode, which in turn lets her grandfather give her some words of advice. An author's note addresses readers frankly about dealing with an addicted family member.
+
 ### _Abigail and the Snowman_, Roger Langridge
 Abigail (possibly Caucasian, possibly of color -- the shading makes it hard to tell) befriends a yeti who has escaped some sort of secret government lab. There's violence here (helicopters being shot down) along with a frightening moment where it seems like the yeti has died, but it all works out on the end.
 
