@@ -1,19 +1,20 @@
 # Book Recommendations for Kids
 
-I keep Goodreads shelves with ratings of many of the books we've read.
+I have pages of my own descriptions for each of the below categories. Some books show up here that I forgot to put into Goodreads, but these lists don't include numeric ratings. You can probably figure out what I think of the book from the description, though.
+
+  * [Chapter books (including larger illustrated books)](https://derricks.github.io/chapter_book_thoughts)
+  * [Comics and Graphic Novels](https://derricks.github.io/kids_comic_books)
+  * [Books without pictures](https://derricks.github.io/books_without_pictures)
+
+
+I also keep Goodreads shelves with ratings of many of the books I've read.
 
   * [All kids books](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=you-know-for-kids)
   * [Chapter books (including larger illustrated books)](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=chapter-books)
   * [Comics and Graphic Novels](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-comics)
   * [Books without pictures](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures)
   * [Books about kids and civic engagment](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-and-civic-engagement)
-  
-For longer descriptions, I have pages for some of those categories. Some books show up here that I forgot to put into Goodreads, but these lists don't include numeric ratings. You can probably figure out what I think of the book from the description, though.
 
-  * [Chapter books (including larger illustrated books)](https://derricks.github.io/chapter_book_thoughts)
-  * [Comics and Graphic Novels](https://derricks.github.io/kids_comic_books)
-  * [Books without pictures](https://derricks.github.io/books_without_pictures)
-  
 Here are some of the sources I use for finding new books:
 
   * [The Horn Book](https://www.hbook.com/): Something like eighty percent of books I find come from this long-respected publication (which is aimed primarily at librarians). While I have a subscription, even their newsletters and blogs are filled with reviews. They often highlight books by and about people of color.
