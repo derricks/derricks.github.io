@@ -2,7 +2,7 @@
 
 I have pages of my own descriptions for each of the below categories. Some books show up here that I forgot to put into Goodreads, but these lists don't include numeric ratings. You can probably figure out what I think of the book from the description, though.
 
-  * [Chapter books (including larger books with some illustrations books)](https://derricks.github.io/chapter_book_thoughts)
+  * [Chapter books (including larger books with some illustrations)](https://derricks.github.io/chapter_book_thoughts)
   * [Comics and Graphic Novels](https://derricks.github.io/kids_comic_books)
   * [Books without pictures](https://derricks.github.io/books_without_pictures)
 
