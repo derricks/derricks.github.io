@@ -21,7 +21,7 @@ _Baby Monkey, Private Eye_, Brian Selznick
 
 _Poppington_ series, Cynthia Rylant
   * Premise: A slightly antisocial anthropomorphized pig who seems to have retired from a busy life has encounters with other anthropomorphized friends.
-  * General thoughts: Enjoyable, and classic. 
+  * General thoughts: Enjoyable, and classic.
   * Social commentary: None
 
 _Charlie and Mouse_ series, Laurel Snyder:
@@ -65,7 +65,7 @@ _Mr. Putter & Tabby_ series, Cynthia Rylant
 _Penny and Her Marble_, Kevin Henkes
   * Premise: A girl finds a marble and wrestles with the moral implications of maybe having stolen it (she didn't) but really really wanting it.
   * General thoughts: Kevin Henkes has great characters, and Penny is no exception.
-  * Social commentary: Girl as protagonist. 
+  * Social commentary: Girl as protagonist.
 
 _Desmond Cole, Ghost Patrol_ series, Andres Miedoso
   * Premise: Neighborhood boys are basically ghostbusters, but with friendly resolutions
@@ -75,19 +75,19 @@ _Desmond Cole, Ghost Patrol_ series, Andres Miedoso
 _Zoey and Sassafras_ series, Asia Citro
   * Premise: Young girl has the ability to see magical creatures and the scientific background to help heal them
   * General thoughts: The premise for this is quite good, without resorting to the easy tropes for kids this age. I especially like the way the scientific method is called out, even if it is in the service of curing mythical beings. Perfect for fans of Doc McStuffins or stories about helping animals.
-  * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work. 
+  * Social commentary: Zoey and her family are African-American, and she loves getting dirty, playing with bugs, and doing science. Her mom is a scientist who has to travel for work.
 
 _Tales of Sasha_ series, Alexa Peral
   * Premise: Sasha, a horse, discovers that she's not like other members of her herd and is in fact a pegasus who is a princess from another land.
   * General thoughts: Basically My First Misfit-Kid-Is-Secretly-Royalty-Somewhere-Else trope. The words in this are straightforward and simple, which makes it a good chapter book for a reader excited to move into this territory. Our daughter loved this series, but adults or bigger readers may find the stories banal and predictable.
   * Social commentary: None
-  
-_Something Queer_ series, Elizabeth Levy 
+
+_Something Queer_ series, Elizabeth Levy
   * Premise: Two girls and a basset hound solve various mysteries.
   * General thoughts: These books have fairly dense type but are still pretty short. The mysteries resolve pretty quickly.
   * Social commentary: Two Caucasian girls as protagonists.
 
-_Mouse Scouts_ series, Sarah Dillard 
+_Mouse Scouts_ series, Sarah Dillard
   * Premise: A small troop of "Mouse Scouts" (akin to Girl Scouts) tries to earn their badges
   * General thoughts: These are gentle books in which the girls in the troop must work together and overcome differences. "Handbook" asides feature information that humans can use as well.
   * Social commentary: None
@@ -106,7 +106,7 @@ _Princess Posey_ series, Stephanie Greene
   * Premise: A first-grader dons a tutu to give herself confidence as the imaginary "Princess Posey" and has typical first-grade adventures
   * General thoughts: The writing in this is decent, and the adventures relatable. Neither particularly bad nor good.
   * Social commentary: The Caucasian girl is given a lot of pink, sparkly things. Not much deviation from gender norms here.
-  
+
 _Miss Bunsen's School for Brilliant Girls_, Erica-Jane Waters
   * Premise: Girls who attend a rundown school for brilliant girls make wild inventions.
   * General thoughts: I personally found the first of these to be fairly uninspired, with characters that are basically just over-the-top caricatures when they're not one-dimensional.
@@ -119,7 +119,7 @@ _Jasmine Toguchi_ series, Debbie Michiko Florence
   * Premise: Strong-willed, determined girl growing up in her Japanese-American household.
   * General thoughts: We love Jasmine Toguchi! The first and third books in particular show Jasmine to be a determined kid who considers herself physically strong and always capable. I also like the spotlighting of certain Japanese traditions in each book.
   * Social commentary: Jasmine is Japanese-American who views herself as strong and infinitely capable. She occasionally pushes up against the gender norms in her culture, but always gets past. Her parents both work, with her mom being an editor at a paper.
- 
+
 _Lola Levine_ series, Monica Brown
   * Premise: Soccer-loving second-grader Lola Levine manages a variety of social topics.
   * General thoughts: We love Lola Levine! A quirky, opinionated kid who's well fleshed out and whose stories seem real.
@@ -134,27 +134,27 @@ _Wishtree_, Katherine Applegate
   * Premise: Red, a tree -- a wishtree, even, where once a year people tie wishes to her branches -- narrates a moment in the life of her community of people and animals.
   * General thoughts: This book is a standout for its core message about community and friendship as well as its imagined world of talking trees and animals. (And the ways animals name themselves is a delightful thread). There's just so much to appreciate here, and I was bawling by the momentous end of the community coming together to become stronger and save their beloved tree.
   * Social commentary: A core part of the plot is a Muslim family who are being shunned and harassed by the community they've moved into.
-  
+
 _Anna Wang_ series, Andrea Chang
   * Premise: Bookworm and sewing enthusiast Anna Wang goes through her life.
   * General thoughts: I really liked the writing in this book. The simple prose is good for beginning readers, but it also fits with Anna's introspective, quiet nature. It also allows for a lot of reading between the lines. She's a good character who is kind and thoughtful but also isn't pushed around easily. T
   * Social commentary: Anna is American-born Chinese who is, at first, embarassed my her mom's imperfect English and the cleaning job she uses to pay for her nursing school. In the first book, her friend's family seems to be having a hard time of it, with her dad often yelling and breaking things and her mom stashing her kids at friends' houses as she separates from him. There are observations about Chinese culture and the way Caucasian classmates interact with them. "Do you speak Japanese?" asks one schoolmate.
-  
+
 _Dory Fantasmagory_ series, Abby Hanlon
   * Premise: Highly imaginative girl navigates a rich fantasy world that wraps around her day-to-day normal-kid adventures.
   * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
   * Social commentary: Dory and her family/friends are all Caucasian.
-      
+
 _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
   * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
   * Social commentary: The book takes place in India, and Tamil words are sprinkled through the text without translation. The girl protagonist is a devoted book reader, and she is given a voice by virtue of her political actions. There is a thread about how a more conservative uncle disapproves of her learning and her mother's job.
-  
+
  _Dragons in a Bag_, Zetta Elliott
    * Premise: A boy left with a witch for the day gets involved in a magical errand to put baby dragons in their proper worlds
    * General thoughts: A child in this world getting accidentally involved in some magical quest is hardly a new idea, but this story moves along nicely and adds a lot of nice twists.
    * Social commentary: Where to start. All the characters are people of color. Everyone is struggling with money -- Jax's mother is trying to prevent them from getting evicted. One of the magical creatures is homeless and is also invisible (literally and metaphorically).
-   
+
  _Make-Believe Empire: A How-To Guide_, Paul Berman
    * Premise: This nonfiction book gives advice to kids on how to use household objects to construct their own vision of the imaginary lands inside their heads
    * General thoughts: When we gave this book to our daughter, she went full-bore on it. She built herself an empire in her room by scavenging materials from all around. She drew a seal for her world and created religious songs of praise. Berman is a MacArthur recipient, and, like a disproportionate number of his genius peers, created his own vast empire as a youth. While this describes his own empire building, it can easily become inspiration for your own world builders.
@@ -164,22 +164,22 @@ _Ada Lace_ series, Emily Calandrelli
   * Premise: Computer-savvy girl moves to San Francisco and uses technology to solve problems.
   * General thoughts: We like these storylines, and I particularly like that the technology they use is modern. Ada uses Arduinos and smartphones; you don't have to explain to your kids why people are going somewhere to use a phone.
   * Social commentary: Nerdy Caucasian girl who likes science and is skeptical of her woo-woo friend's ideas. Ada is also color blind, which is very uncommon in girls. Dad is an art teacher and mom has the better-paid job as an art curator and is often traveling.
-  
-_Nim's Island_ series, Wendy Orr 
+
+_Nim's Island_ series, Wendy Orr
   * Premise: A girl who lives on a remote island goes on various adventures involving her wild friends, an adventure writer, and a scientist father.
-  * General thoughts: This quirky series often gets compared to _The Swiss Family Robinson_ and _Robinson Crusoe_ (minus the racism), and it's an easy comparison to make as Nim takes care of herself during the various books (in the first, her dad is adrift at sea). 
+  * General thoughts: This quirky series often gets compared to _The Swiss Family Robinson_ and _Robinson Crusoe_ (minus the racism), and it's an easy comparison to make as Nim takes care of herself during the various books (in the first, her dad is adrift at sea).
   * Social commentary: Nim is a caring, intelligent, and very independent girl, but the first book is pretty blatant about people -- including Nim -- preferring that the hero Alex Rover is a man, even though the author Alex Rover tells Nim up front she's not. There's a strong theme of how thoughtless people can destroy ecologies.
-  
-_Stella Diaz Has Something To Say_, Angela Dominguez 
+
+_Stella Diaz Has Something To Say_, Angela Dominguez
   * Premise: Third-grader Stella Diaz feels shy about speaking to people, but has to work up to a presentation.
   * General thoughts: This is a delightful little book about Stella finding her voice and the courage to be friends with new people while navigating third-grade anxiety.
   * Social commentary: Stella is Latina, and her family immigrated to Chicago from Mexico when she was just a baby. Mexican family comes to visit, and we get a taste of Mexican culture. Spanish words are sprinkled liberally in the text, but always with enough surrounding context for readers to suss out an unfamiliar word. Stella's mom is a single mom, and her dad is bad about keeping promises or paying child support. Still, he clearly loves his children.
-  
+
 _Clementine_ series, Sara Pennypacker
   * Premise: Adventures of an eight-year-old as she navigates schools, friendships, etc.
   * General thoughts: Ooh, boy, Clementine seems like a handful, which resonates with us. High-energy, smart, determined, and willful like our daughter, she would probably be classified as "spirited." There are some complex things going on in these books, and the writing is decent.
   * Social commentary: Clementine (Caucasian) is gifted at math! Hooray for a book that a) makes math talent seem desirable and b) has girls enjoying it. Her own family clearly lives more paycheck-to-paycheck, while her "best friend" (it's complicated) clearly has a lot more money.
-  
+
 _A Boy Called Bat_, Elana K. Arnold
   * Premise: An autistic boy is determined to keep a baby skunk his veterinarian mom brings home
   * General thoughts: This is a sweet, gentle book (the first in a series), and you really feel for Bat even as you see his mom's point about wild animals not being good pets.
@@ -189,17 +189,17 @@ _The Becket List_, Adele Griffin
   * Premise: City girl Rebecca Branch and her family move to the farm where her dad grew up, and everyone has to adjust to the new life.
   * General thoughts: This is a fairly straightforward "suddenly I'm a new kid" book, but with nice sentiment about rural life. Becket -- Rebecca's new self-created nickname -- is exuberant and maybe a touch out of control in ways that evoke Clementine (see above) and Cilla Lee-Jenkins (see below). But while she wants to embrace country life, she finds adjusting to a new crowd tricky. Note (and spoiler alert) for sensitive readers: the family dog dies of old age and a heart condition near the end of the book, in a passage that's a touching conclusion.
   * Social commentary: Both of Becket's parents work as veterinarians. There's a brief aside that a girl in the country is a bit darker (later implied to be a Latinx family) than the Caucasian Branch family, and their visiting city friends are African-American, but little is discussed in this vein.
-  
+
 _Two Dogs in a Trench Coat_ series, Julie Falatko
   * Premise: Two dogs wrap themselves in a trench coat and venture out to school and the human world
   * General thoughts: Our daughter was giggling non-stop during this and pausing frequently to show us something hilarious in the book. Even I found it often amusing, but don't expect verisimilitude of any kind.
   * Social commentary: All the human characters are Caucasian, with the exception of the main teacher in the story. There's some negative views of school, but nothing too outside the norm.
-  
+
  _Nick and Tesla_ series, Bob Pflugfelder
    * Premise: Twins Nick and Tesla are sent to live with their would-be mad-scientist uncle when their parents are whisked away to work on a secret government project. At Uncle Newt's house, they discover a lab full of stuff they can use to tinker in ways that help them solve mysteries around town.
    * General thoughts: Our daughter enjoys these stories quite a bit. Full of kid-sized humor and wacky plots, the books will keep readers turning pages. The books _also_ include build guides to build many of the projects Nick and Tesla construct. Topics range from simple electronics to spy gadgets and more. One could argue that the stories are rather thinly draped around the included projects, but they're engaging enough.
    * Social commentary: The Caucasian protagonists both seem equally capable of carrying out the projects, and they work together well with the neighbors (some of whom are people of color). The characterizations rely on some standard tropes: the short, squat security guard with a small ponytail; the slightly slobby curmudgeonly clerk at some sort of "loose parts" store full of components for projects.
-   
+
  _The Night Fairy_, Laura Amy Schlitz
    * Premise: A night fairy named Flory has a run-in with a bat that gets her wings bitten off, and she decides to try life as a day fairy.
    * General thoughts: This classic story has a lot of depth. While one could read it as a straightforward adventure, the text offers a lot to dig into, even as just small bits and bites. For instance, because Flory uses her stinging spell so much, she takes on a more sharp, pointed appearance. She is selfish and haggling at the beginning of the book, only later learning how to do things just because they're the right thing to do. Her magic is a total deus ex machina, always giving her exactly the magic she needs when she needs it, but that keeps the story moving well enough.
@@ -219,7 +219,7 @@ _Bea Garcia_ series, Deborah Zemke
   * Premise: Daily adventures of an artistic girl
   * General thoughts: We like this series and how it incorporates Bea's drawings as part of (and not just alongside) the text.
   * Social commentary: Bea Garcia is Latina.
-  
+
 _Ivy and Bean_ series, Annie Barrows
   * Premise: Two friends navigate their neighborhood and schools in maybe-not-the-best-but-definitely-realistic ways.
   * General thoughts: This is a popular series and one of the first chapter book series we hit upon. The solutions the kids come up with feel realistic but also totally bonkers to adults.
@@ -229,7 +229,7 @@ _Beatrice Zinker, Upside-Down Thinker_, Shelley Johannes
   * Premise: A girl whose creativity is shown by literally having her think best when upside-down has school adventures
   * General thoughts: The writing in this is poppy, which can be a bit wearing for the course of the book. I like the fact that Beatrice's friendship issue is a bit different -- her partner in crime from 2nd grade is trying to be more "normal."
   * Social commentary: Beatrice's 3rd grade teacher is a good example of how _not_ to be compassionate towards kids. She's held up as a mean, judging figure. There's a lot of commentary on being normal or not, though a fair amount is between the lines. Beatrice is Caucasian.
-  
+
 _Calpurnia Tate, Girl Vet_ series, Jacqueline Kelly
 
 **Note: Don't confuse with the middle-grade books _The Evolution of Calpurnia Tate_ and _The Curious World of Calpurnia Tate_, which are more mature in topic**
@@ -242,22 +242,22 @@ _Knights vs. Dinosaurs_, Matt Phelan
   * Premise: Braggart Knights of the Round Table are sent back in time to battle dinosaurs. They have to work together to actually win, though.
   * General thoughts: This is a bit like an Onion headline or SNL skit: Funny idea, but mediocre execution. The knight battles get old quickly, and the ending feels very neat.
   * Social commentary: Two of the characters -- spoiler! -- are girls in disguise. This causes some consternation amongst the knights, but it's done well enough. Though why you can imagine time-traveling knights but not having openly female Arthurian Knights is beyond me. Also, given the premise, it should be no surprise that there's lots of violence in this book, which your kid may or may not like.
-  
-_Mac B., Kid Spy_ series, Mac Barnett 
+
+_Mac B., Kid Spy_ series, Mac Barnett
   * Premise: The real-life Mac Barnett spins a yarn of the somewhat fictional child Mac Barnett, who is called into duty as a spy.
   * General thoughts: Barnett is a champ at writing for children, and this book falls right in his wheelhouse. The actual spying is silly, with somewhat ludicrous adventures, but every kid imagines themselves a spy, so this should satisfy that.
-  * Social commentary: Mac B. is, unsurprisingly, a Caucasian boy like Mac Barnett the author. Since he uses his own life as a guide, he lives with a divorced mom who doesn't seem to have a lot of money. 
+  * Social commentary: Mac B. is, unsurprisingly, a Caucasian boy like Mac Barnett the author. Since he uses his own life as a guide, he lives with a divorced mom who doesn't seem to have a lot of money.
 
 _Jada Jones_ series, Kelly Starling Lyons
   * Premise: Typical friendship/school adventures
   * General thoughts: Good exploration of feelings
   * Social commentary: Jada is an African-American girl who enjoys science and is respected as a leader in her class.
-  
+
 _Catlantis_, Starobinets
   * Premise: A purebred ginger cat embarks on a time-spanning journey to rediscover the flower that gives cats nine lives.
   * General thoughts: The plot in this book, translated from the Russian, is both bonkers and implausible (I mean, beyond the time travel aspects). But it's full of cat puns and cats doing cat things, so it will appeal to cat-lover readers like my daughter.
   * Social commentary: The female love interest doesn't seem to have much agency in the book, and while she agrees to marry our hero, there's another cat who assumes he can marry her if he wins the flower as a trophy. See Feminist Frequency's [https://feministfrequency.com/video/women-as-reward/](Women as Trope episode) to get a sense of the cultural significance of women (even feline ones) treated like trophies themselves.
-  
+
 _Isadora Moon_ series, Harriet Muncaster
   * Premise: Half-vampire, half-fairy girl has standard lower grade school adventures but with supernatural elements
   * General thoughts: This is a cute series about a girl who straddles two different worlds. I'm sure it will appeal to those former Goth parents who have to deal with fairy-loving (and not Faerie-loving) children. Note that the most notable aspect of vampires is solved by having her dad drink "red juice."
@@ -302,18 +302,18 @@ _Anna Hibiscus_ series, Atinuke
   * Premise: African-Canadian girl has various adventures within her African village.
   * General thoughts: We like this series (note that each book has four chapters that are separate stories). The characters feel real and are enjoyable.
   * Social commentary: Anna's family is clearly well-off, and there are discussions about people of different socioeconomic status and their interactions with the Hibiscus family. I feel like too much of the book reduces all of Africa to one set of mores and traditions, but that may get better as time goes on — the series started decades ago. Interracial couple.
-  
+
 _Heidi Heckelbeck_ series, "Wanda Coven”
   * Premise: Second-grader Heidi Heckelbeck is a witch whose spells mostly just make situations worse and teach her moral lessons.
   * General thoughts: The setups are formulaic and the resolutions pretty pat. But they're mostly enjoyable, and it's fun to come up with your own spells in her style. Also, it's a bit odd that Heidi's not supposed to do spells but has a spell book uniquely suited to the needs of a second-grader.
   * Social commentary: Girls do magic and boys do science. Ugh. Also, the ubiquitous mean girl is exactly what you'd imagine a stereotypical mean girl would look like. Heidi's best friend is a minority (everyone else is Caucasian), though there's nothing about that in the text, so she feels token-y
-  
+
 _Frankly Frannie_ series, A.J. Stern
   * Premise: Young girl desperate to have an adult job concocts new careers in each book, with amusing results
-  * General thoughts: Frannie's a good character that speaks to how kids think and talk. She thinks she's ready to be an adult and craves office supplies. 
+  * General thoughts: Frannie's a good character that speaks to how kids think and talk. She thinks she's ready to be an adult and craves office supplies.
     But her made-up words quickly go from cute to grating over the course of the book.
   * Social commentary: Frannie's family is Caucasian and they're implied to be middle-class.
-  
+
 _Magic Treehouse_, Mary Pope Osborne
   * Premise: Two kids have various time travel adventures that center around Morgan LeFey.
   * General thoughts: If you've looked up lists of chapter books, you've already found this seemingly endless series. The plot structure is repetitive (for each four books, travel to different points in time and get some object for some spell that needs all four), but they do try to include some nonfiction (there's a companion series of nonfiction books that touch on each topic) and they confer some amount of early reader pop cultural literacy, I suppose. The Merlin's Mysteries series picks up where TMT leaves off and are aimed at older readers.
@@ -328,7 +328,7 @@ _The 13-Story Treehouse_ series, Andy Griffiths and Terry Denton
   * Premise: Two boys and their next-door neighbor have wackadoodle adventures in their increasingly larger treehouse.
   * General thoughts: My wife observed that this cuckoo bananas progression of story arcs is exactly the kind of story our daughter would tell, and I imagine that's true in many families. Note that the kids call each other "stupidhead" and other such terms that parents might not want their kids repeating.
   * Social commentary: All the characters are Caucasian.
-  
+
 _Agatha, Girl of Mystery_ series, Stefano Turconi
   * Premise: A fabulously wealthy girl with "a formidable memory" travels the world solving mysteries.
   * General thoughts: Our daughter liked reading the first book in this, and it would seem to tick a lot of kid-fantasy boxes: spying, detective work, infinite wealth, eccentric family members. I'm a bit mystified, in the first book, about the fact that her cousin passes the detective test even though Agatha did all the work. Also her "memory drawers" technique sounds like an attempt to talk about memory palaces, but the author doesn't seem to really understand them.
@@ -337,7 +337,7 @@ _Agatha, Girl of Mystery_ series, Stefano Turconi
 ## Where The Line Between Chapter Books and Normal Books With Illustrations Fades
 These books are still chapter books in general, but one does begin to wonder in these books where the line is between "chapter book" and "just a book".
 
-_Bob_, Wendy Mass & Rebecca Stead 
+_Bob_, Wendy Mass & Rebecca Stead
   * Premise: A magical creature has stayed put in a closet ever since the owner's granddaughter told him to. But that was five years ago, and she's just returned, having forgotten all about him.
   * General thoughts: This is an interesting premise that quickly dodges a lot of the easy tropes, though there are still some to be found. Bob's story, and Livy's too, is pieced together by the two of them throughout the book, and the ending is quite a surprise.
   * Social commentary: Livy is a smart, determined Caucasian girl. Her grandmother and all her neighbors are suffering from a long drought, and the poverty they've faced has taken its toll.
@@ -351,52 +351,52 @@ _The Lifters_, Dave Eggers
   * Premise: A boy moves to a new town that is undercut by many many tunnels that a girl he meets works to prop up with whatever she can find.
   * General thoughts: The plot in this is unusual, while still moving quickly, and there are some thoughtful ideas about sorrow and hope that bigger readers might catch. Short chapters and frequent illustrations make it a tractable read.
   * Social commentary: The Caucasian protagonist's family is poor, as are most people in the town, and the girl character is a person of color who wears a Ruth Bader Ginsburg t-shirt. While older readers might decide that the protagonist is attracted to her, you could also read it as just being fascinated by her in a Platonic way.
-  
-_Unusual Chickens_ series, Kelly Jones 
+
+_Unusual Chickens_ series, Kelly Jones
   * Premise: A girl and her family inherit her great-uncle's farm in small-town California, and it turns out his chickens have some unusual abilities.
   * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family has moved. The books are filled with actual information about poultry and poultry farming.
   * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior because she's not white. Also, the family has moved from a big city to a small town and is struggling financially.
-  
-_Wild Robot_ series, Peter Brown 
+
+_Wild Robot_ series, Peter Brown
   * Premise: An intelligent, adaptive robot finds herself marooned on an island and must integrate herself into the wild animal community
   * General thoughts: Book one of this series starts out gently but ends in a tense cliffhanger; you'll want to race to get _The Wild Robot Escapes_ to see how it's resolved. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
-  
+
 _Flora & Ulysses_, Kate DiCamillo
   * Premise: "A natural-born cynic" witnesses a squirrel's transformation into a superhero (of sorts) and befriends him, despite the obstacles in the way.
   * General throughts: I quite liked this quirky story with its oddball characters. Children will apprecate the relatively fast pace of the story, while adults will find deeper metaphors for tweenage issues with parents and relationships and of course DiCamillo's reverent use of vocabulary. The graphic-novel-esque illustration blocks adds a nice meta layer of Flora loving superhero comic books and then finding herself in one, both through the story and in the literal sense the illustrations provide.
   * Social commentary: Flora's parents are divorced, as are William Spiver's, and the kids are struggling with what that means.
-  
+
 _The Magic Misfits_ series, Neil Patrick Harris
   * Premise: A group of kids embodying different types of stage magic and performance solve problems in their small town.
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
-  
+
 _Weird Little Robots_, Carolyn Crimi
   * Premise: Awkward Caucasion new kid Penny Rose befriends "class weirdo" Lark (also Caucasian), and the two discover that Penny Rose's robots have taken on a life of their own.
   * General thoughts: The middle-grade drama here is pretty typical: Choosing between one's true good friend and a group that seems good on the surface but requires you to make fun of your actual best friend. I love that Penny Rose's robots are created from parts she scavenges from everywhere, as contrasted with the mean boy who uses off-the-shelf robot stuff. I enjoyed the book and the two main characters -- Lark will remind many of Luna Lovegood. I'm a bit annoyed by books that purport to talk about science but then make it all "work" by using magic. Contrast with _Zoey and Sassafras_, where the science is real and doesn't need magical creatures to make it so.
   * Social commentary: Girls tinkering and doing science is always a welcome sight, and I like how Lark blends a love of ornithology with art and creativity (and Penny Rose's robots are creative, too!). I believe only one of the side characters is a person of color.
-  
+
 _Pip Bartlett_ series, Maggie Stiefvater and Jackson Pearce
   * Premise: Titular Pip Bartlett can talk to magical animals, of which there are many in her world, and she has adventures fueled by this ability.
   * General thoughts: This is a charming little series, driven by the common fantasy of many kids to be able to talk to animals. The animal characters are quirky and amusing, and Pip's unique ability gives voice to animals who have wry observations about the worlds around them. A good next step from _Zoey and Sassafrass_.
   * Social commentary: Virtually all the lead characters are Caucasian women or girls, though women who are veterinarians and girls talking to adorable magical creatures aren't exactly breaking any stereotypes. I could wish that Pip solves problems through sheer cleverness rather than the extra information from animals that only she is privy to, but that is part of the fantasy, I suppose. One could also raise an eyebrow at the fact that her primary companions for the first two books are a hypochondriac Latino boy and a similarly terrified-of-everything unicorn. I feel like they're there to make her look confident and clever by comparison rather than letting her have those traits even next to someone less extreme in their fears. But Tomas is the only human who accepts her ability to talk to animals at face value.
-  
+
 _Samantha Spinner_ series, Russell Ginns
   * Premise: A girl inherits a tattered old red umbrella from her maybe-deceased uncle that contains a secret map that leads her on lots of adventures.
   * General thoughts: This outlandish series, featuring everything from secret passages connecting famous landmarks of the world to stench-ridden ninjas, is a romp of a book. The adventures involve all sorts of off-the-wall antics and people, but I'm appreciative of the fact that the book is itself an ARG which will lead you to websites and yet more puzzles. The second book in particular bogs down with details that feel more like an attempt to hit a page count than to hold the narrative together. This won't win any literary prizes, but our daughter read through these at an eager clip.
   * Social commentary: The main problem-solver is a girl, but she also has a big sister who loves nothing more than shopping and fashion. The characters could be interpreted as minorities in the illustrations, though the cover illustrations really lead you to believe the kids are all white.
-  
+
 _Nikki Tesla and the Ferret-Proof Death Ray_, Jess Keating
   * Premise: The world's smartest kids are recruited into an academy that routinely saves the world.
   * General thoughts: This is a novel take on the "new kid at school" genre of middle-grade fiction. The school in this case is compared to the Professor X School for Gifted Youngsters, and comprises seven incredibly gifted children. Who fight against supervillains. The first book sets up a series, which promises to be a fun romp. Actual science and trivia are sprinkled about, but this is really just a fun adventure celebrating ludicrously smart kids.
-  * Social commentary: Two people of color are included in the seven kids, and four of the seven are girls. But they go to a totally luxe school with its own private jet. 
+  * Social commentary: Two people of color are included in the seven kids, and four of the seven are girls. But they go to a totally luxe school with its own private jet.
 
 _Katt vs. Dogg_, James Patterson and Chris Grabenstein
   * Premise: A young katt and a young dogg (anthropomorphized versions of our most common pets) get lost in the woods and have to work together despite being sworn enemies.
   * General thoughts: This is a pretty blatant "Enemy Mine" trope, with the katt and dogg flinging insults at each other until they figure out they should work together to get out of the wilderness and back to their families. Despite the anthropomorphism and the really odd hybrids of animal species who have managed to get along, unlike the famously antagonistic katts and doggs, this book manages to introduce some actual trivia about our non-anthropomorphic cats and dogs. There's a small twist at the end, but it all works out for the best, and the two become fast friends who work to educate other katt and dogg families about their prejudices.
   * Social commentary: The raging hatred between the katts and doggs is a skin you could stretch over any two groups who hate each other based on willful ignorance. Some journalists might not like the portrayal of the press as sensationalist and exploitive, but those of us with a cynical view of the fifth estate will probably see much truth in the machinations of the ferret journalist.
-  
+
 _The Trumpet of the Swan_, E.B. White
   * Premise: A _bildungsroman_ about a voiceless trumpeter swan who finds a way to communicate with an actual trumpet.
   * General thoughts: You probably know White's _other_ books, but I hadn't read this one before. It's a bit of an absurd story, but it's an engaging plot and of course White's writing about the natural world is lovely.
@@ -411,10 +411,10 @@ _Sam the Man_ series, Frances O'Roark Dowell
   * Premise: In a way kids will appreciate, Sam comes up with various roundabout schemes to solve his problems. Reminiscent of Violet Mackerel.
   * General thoughts: These are gentle books with plots that are complex but realistic.
   * Social commentary: Sam's family is Caucasian, but I believe one of his neighbors is a person of color
-  
-_Ra The Mighty: Cat Detective_, A.B. Greenfield 
-  * Premise: Pharoah's self-important cat teams up with a dung beetle and a stray cat to save a child falsely accused of stealing a valuable necklace.
-  * General thoughts: The fact that Ra is puffed up about his awesomeness while the dung beetle does all the actual work has something of a Jeeves and Wooster book. The plot takes some unexpected twists, along the way giving a peek into royalty and customs in Ancient Egypt.
+
+_Ra The Mighty_ series, A.B. Greenfield
+  * Premise: Pharoah's self-important cat teams up with a dung beetle and a stray cat to solve mysteries.
+  * General thoughts: The fact that Ra is puffed up about his awesomeness while the dung beetle does all the actual work has something of a Jeeves and Wooster feel. The plots take unexpected twists, along the way giving a peek into royalty and customs in Ancient Egypt.
   * Social commentary: There are some asides about how the royalty is largely unconcerned with their servants, but for the most part this is animals talking to each other.
 
 _Me & Mister P_, Maria Farrer
