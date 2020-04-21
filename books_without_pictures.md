@@ -10,7 +10,7 @@ Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/re
 We picked this book up when our daughter first became interested in books without pictures, and it's a series we've all enjoyed since. Princess Cimorene doesn't like to play by normal princess rules -- she finds princesses who _do_ to be insufferable -- and so she goes to live with a dragon to save herself from princes. She quickly becomes a valued friend to Kazul and they, along with a variety of magical friends, have a wide range of adventures in and around The Enchanted Forest.
 
 ## _Love Sugar Magic_ series, Anna Meriano
-![](https://images-na.ssl-images-amazon.com/images/I/912dyepc1TL.jpg)
+![](https://images-na.ssl-images-amazon.com/images/I/51g01hGEgaL._SX329_BO1,204,203,200_.jpg)
 
 We love this series about Leonora Logroño and her family of _bruja_ bakers in small-town Texas. The first book sees Leo learning
 about the magic running through the women in her family as they all prepare for Dia de Los Muertos, and then misperforming her own magic to wild effect. There's a bit of sadness, though largely from Leo's friend, whose mom died from cancer before the book started. Mysteries and tense situations are resolved at a good pace, so young readers don't get too anxious or lose any threads. Fortunately, the book ends with recipes, because you'll want to eat something delicious as you read through! (This series will always have a special place; when our daughter switched to independent reading, we had been reading this out loud and she just decided to finish it on her own.)
