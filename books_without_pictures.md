@@ -5,74 +5,122 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
 ## _The Enchanted Forest Chronicles_, Patricia Wrede
+![](https://m.media-amazon.com/images/I/51rUbOGdbxL.jpg)
+
 We picked this book up when our daughter first became interested in books without pictures, and it's a series we've all enjoyed since. Princess Cimorene doesn't like to play by normal princess rules -- she finds princesses who _do_ to be insufferable -- and so she goes to live with a dragon to save herself from princes. She quickly becomes a valued friend to Kazul and they, along with a variety of magical friends, have a wide range of adventures in and around The Enchanted Forest.
 
 ## _Love Sugar Magic_ series, Anna Meriano
+![](https://images-na.ssl-images-amazon.com/images/I/912dyepc1TL.jpg)
+
 We love this series about Leonora Logroño and her family of _bruja_ bakers in small-town Texas. The first book sees Leo learning
 about the magic running through the women in her family as they all prepare for Dia de Los Muertos, and then misperforming her own magic to wild effect. There's a bit of sadness, though largely from Leo's friend, whose mom died from cancer before the book started. Mysteries and tense situations are resolved at a good pace, so young readers don't get too anxious or lose any threads. Fortunately, the book ends with recipes, because you'll want to eat something delicious as you read through! (This series will always have a special place; when our daughter switched to independent reading, we had been reading this out loud and she just decided to finish it on her own.)
 
 ## _Nothing But Trouble_, Jacqueline Davies
+![](https://images-na.ssl-images-amazon.com/images/I/51bl24qO-cL._SX322_BO1,204,203,200_.jpg)
+
 I really enjoyed this book about Maggie, a science-and-engineering expert who delights in elaborate MIT-hack-style pranks, and her new arty friend Lena. The book features lots of fun pranks, but also touches heavily on small-town life (both good and bad aspects), dreams that succeed or fail, and getting students engaged with their school. Maggie's dad, an MIT hackster here given credit for the famous "police car on the MIT dome" hack, died before she was born, and all she has left of him are his hacking notebooks and his imagined voice in her head. Over the course of the book, she learns that her sneaky actions have consequences and that maybe she's not quite as anonymous as she's believed.
 
 ## _The Girl Who Drank the Moon_, Kelly Barnhill
+![](https://images-na.ssl-images-amazon.com/images/I/51MdIF800wL._SX331_BO1,204,203,200_.jpg)
+
 This book starts out as a gut-wrencher, at least for parents: Officials taking away a new baby from a distraught mother to offer it to the witch in the woods. There is a witch in the woods, but she's somewhat befuddled by why the villagers abandon a kid each year. So she takes the kids and relocates them to other villages, where they often enjoy blessed lives thanks to the starlight the witch feeds them. But one year, she feeds the abandoned child moonlight, which fills her with intense, powerful magic. Xan then decides to raise Luna herself to try and contain her abilities. But once Luna reaches her 13th birthday, the protections begin to fade and some ancient history involving Xan resurfaces in dramatic fashion. This Newbery winner is an intense book. It's theoretically a kids book, but there's a lot going on, and there are definitely dark parts of the story.
 
 ## _The Penderwicks_ series, Jeanne Birdsall
+![](https://images-na.ssl-images-amazon.com/images/I/517X2PGEquL._SX338_BO1,204,203,200_.jpg)
+
 This lovely series introduces the Caucasian Penderwick family: four sisters, a dog, and a widower father. The girls range in age from four to twelve in the first book, and the series follows along as they get older. The girls are richly drawn and have complicated relationships with each other, exasperated and loving at the same time. In the first book, they're vacationing in a "cottage" (that allows each family member to have their own bedroom and a study for the dad) that is on the grounds of an estate in the Berkshires. So you can expect fairly middle-class issues. Crushes and first kisses are definitely in play.
 
 ## _Operation Frog Effect_, Sarah Scheerger
+![](https://images-na.ssl-images-amazon.com/images/I/51H44gdOBzL._SX329_BO1,204,203,200_.jpg)
+
 In this unusually formatted book, the reader gets an over-the-shoulder glance at fifth-grade journals. Typical (and not so typical) middle grade drama plays out not through straight narration but by putting connections together across the journals of eight students. One does hers all in poetry while another does his in screenplays and yet another does his in graphic-novel format. You get a peek into the troubles and triumphs of each student's life (from kids living in a garage to kids living in a mansion, kids going to private school and kids dealing with immigration issues), and the final act will have you cheering for the students' activism.
 
 ## _Nevermoor_ series, Jessica Townsend
+![](https://images-na.ssl-images-amazon.com/images/I/51b65ijCx1L._SX342_BO1,204,203,200_.jpg)
+
 I quite like (and my daughter loves) this series about Morrigan Crow, a Caucasian (at least according to the cover) child born on Eventide and thus cursed to die on her eleventh birthday. Instead of dying, though, she's whisked away to a magical place called Nevermoor, where she is entered into a series of trials to enter the Wundrous Society. There are obvious parallels to Harry Potter here -- an eleven-year-old taken from an abusive home to a magical realm, magical buildings and people, a school course load that will make kids envious, and a Chosen One trope -- but the books have their own vibe and the world feels wholly unique, especially by book two, when the author gives us a deeper look at Nevermoor and its many ways. The book gets pretty dark even by book two, but the "bad wizards bad and good wizards good" simplicity of Harry Potter is replaced by a more nuanced view. The Wundrous Society is a magical institution, but it's not hard to catch a fair amount of class resentment against its members. The Big Bad has clearly done bad things and is painted with a menacing brush, but he also helps Morrigan because he needs an ally in a larger fight that we are as yet unaware of.
 
 ## _Upside-Down Magic_ series, Sarah Mlynowski, Lauren Myracle, Emily Jenkins
+![](https://images-na.ssl-images-amazon.com/images/I/518m38L9mCL._SX342_BO1,204,203,200_.jpg)
+
 Our daughter devoured this series, falling in love even before she opened the cover with its intensely adorable "dragon kitten" (or dritten.) Nory Horace lives in a world where magic is the norm. But while most people fall easily, predictably, and (one might say) boringly into a few categories with defined skills, Nory is different. Her magic goes "upside-down" or "wonky," much to the embarrassment of her family. She starts attending an Upside-Down Magic class with other kids (notably of very different skin tones; Nory herself is biracial) whose magic doesn't do what it's "supposed" to. It's pretty clear early on that she and her friends represent really powerful magic, as their teacher (an "Upside-Down" person as well) tries to help them control, understand, and use their unique abilities. It's very easy to find parallels to neurodiverse students here, and in the first book there are hints that being different has been squashed in the last century of the world's history.
 
 ## _The Key to Extraordinary_, Natalie Lloyd
+![](https://images-na.ssl-images-amazon.com/images/I/61Km5jIF80L._SX342_BO1,204,203,200_.jpg)
+
 I found this book really moving and thoughtful, with a number of layers, a good mystery, and strong messages about what's important to honor and love. Emma comes from a long line of extraordinary women who call themselves the Wildflowers. At some point, each has a dream that tells her her destiny. When Emma gets hers, she thinks it means one thing, and it does, but not in the way she thinks. The book is infused with magical realism or light fantasy, with magic unusual but also commonplace in this town. Adults may see the twist coming early on, but it doesn't change the intensity of the emotion. Emma has lost her mom before the book begins, and she refers to her feelings as The Big Empty or the hole in her heart. Lots of good thoughts about family and friends in this book set in small-town Tennessee.
 
 ##  _From the Mountain to the Moon_, Grace Lin
+![](https://m.media-amazon.com/images/I/611StlT-2lL._SY346_.jpg)
+
 Inspired by Chinese folklore, this quiet and poetic Caldecott winner features a young girl, Minli, venturing off to see the Old Man in the Moon and ask for her family's fortunes to be changed. Along the way, she encounters a range of characters, including a dragon who becomes a fast friend, who tell their own stories, which seem at first to be unrelated but ultimately all tie together in a rich tapestry that builds Minli's world effectively. By the time she actually gets to the Old Man, she's learned a lot about herself and what's really important in life. Some chapters focus on her parents and their reaction to their daughter's disappearance. There are illustrations in the book, again inspired by Chinese art, but they're sparse enough to keep this book in this list.
 
 ## _York: The Shadow Cipher_, Laura Ruby
+![](https://images-na.ssl-images-amazon.com/images/I/51gZ3bEX7iL._SX328_BO1,204,203,200_.jpg)
+
 Oh that we could live in the New York imagined by Ruby in this first book in a series. In her alternate universe set in present day, New York runs on solar power, the Hudson is described as "clear and blue", very sophisticated robots take care of all sorts of menial tasks, and a mysterious puzzle overlays the entire city. All of these advances came thanks to the Morningstarr twins in the late 1800s, but even in this reality, rapacious landlords seek to unhome long-standing residents. When Tess and Theo and their friend Jaime find a clue that suggests there's a _different_ cipher to solve, they set out to find the treasure and save the historic building they're about to be evicted from. While my daughter really enjoyed this leaping puzzle hunt, as an avid puzzle solver I was disappointed to see little in the way of the reality of puzzle-solving. The multiethnic cast of protagonists seems to mostly solve the clues in this parallel cipher by way of intuition and luck, only occasionally going into the mechanics of how a puzzle worked. The fast-paced story doesn't end the way you'd expect, but it does set up a premise for a really interesting second installment.
 
-## _The Magnificent Mya Tibbs: Spirit Week Showdown_, Crytal Allen
+## _The Magnificent Mya Tibbs: Spirit Week Showdown_, Crystal Allen
+![](https://images-na.ssl-images-amazon.com/images/I/51mgk9HmH6L._SX334_BO1,204,203,200_.jpg)
+
 I've read a lot of best-friend drama -- a staple of fiction aimed at elementary and middle school readers -- at this point, but this was easily one of the most tense of those I've read. The titular Mya Tibbs is a character who stands out from the middle-grade genre: a cowgirl-loving African American who lives in Texas. In this first book in a series, she finds out that her best friend is not so much of a friend and that the school "bully" is a thoughtful, kind person. Even knowing this early on, I was at the edge of my seat as Mya navigated this growth during her school's Spirit Week.
 
 ## _Circus Mirandus_, Cassie Beasley
+![](https://images-na.ssl-images-amazon.com/images/I/51cplwK0WXL._SX325_BO1,204,203,200_.jpg)
+
 Things are not going well for Micah. His grandfather, who took him in after his parents died, is dying, and his grandfather's sister has moved in to tend to him. But she thinks the magical tales Ephraim tells are hogwash. Micah doesn't, and pines to experience the Circus Mirandus himself. His grandfather arranges for a letter to be sent asking the illusionist known as the Lightbender to give him the miracle he's owed. Thus begins a journey in which Micah gets to visit the circus himself, along with his skeptical friend, who can't see the circus until she believes, at least a little, in its magic. There are some solid tropes here, but the story puts a new enough spin on "believing in magic makes it real" that even adults will enjoy it. The story is also fairly deep and sets up nicely for the sequel. The sequel, _The Bootlace Magician_ is a more typical adventure, and it immerses you deeply into the circus's world, but you need to know what's in the first book before reading that one.
 
 ## _Castle Glower_ series, Jessica Day George
+![](https://images-na.ssl-images-amazon.com/images/I/51ifWX0ssXL._SX329_BO1,204,203,200_.jpg)
+
 Our daughter devoured this series about a Caucasian girl and her family who live in a magical castle that reshapes itself on a regular basis, usually based on its own thoughts and visions of the future. The book has some intense adventuring, featuring fight scenes and political intrigue. There's a bit of heterosexual crushing and falling in love here and there, the griffins introduced later in the series are sort of a deus ex machina, the book's wizards have fairly patriarchal and patronizing views about women, and it's easy to raise eyebrows at the fact that the Castle never seems to choose a girl as heir to the throne -- what are the protagonist's real options in her future? -- but this is overall a fun series with a girl at the center who's primarily lauded for her intelligence and resourcefulness.
 
 ## _The Vengekeep Prophecies_, Brian Farrey
+![](https://images-na.ssl-images-amazon.com/images/I/61b5FVVbyQL._SX334_BO1,204,203,200_.jpg)
+
 Jaxter Grimjinx comes from a long line of proud thieves and con men. It's too bad he's not really good at the family trade. But he has a different set of talents that become required to save his town after a family con goes unexpectedly awry. This fast-paced and adventure-packed Hero's Journey, the first in a series, sets up a believable magical world that will keep readers eagerly turning the pages. I appreciate the fact that Jaxter's advantages and abilities to survive his adventures come from studying and knowledge of arcane lore rather than physical skill.
 
 ## _The Land of Stories_ series, Chris Colfer
+![](https://images-na.ssl-images-amazon.com/images/I/61KXBkHyA7L._SY498_BO1,204,203,200_.jpg)
+
 Tweens Alex and Conner tumble into a book/portal and find themselves in a world populated with the mainstays of Western European fairy tales. Cinderella, Sleeping Beauty, and Snow White have all married brothers from the Charming royal line. Goldilocks is a fugitive after her initial breaking-and-entering crime, Jack from the beanstalk is in love with her, and Red Riding Hood is a democratically elected queen in love with him. In the first book, the twins have to go on a scavenger hunt for iconic storybook items to assemble a spell that will let them get back to their (our) world. There are definitely some more mature things in here that older readers and adult readers may catch that younger readers probably won't -- in the first book, Conner remembers the location of a secret door because it's next to a painting of Red Riding Hood in nothing but a wolf-fur cape, and she is also described as "showing a lot of skin" in a shoulderless gown. I would also note that the population fits the Western Europe origins -- one fairy on the Fairy Council is specifically called Black, so we have to assume the entire rest of the land is Caucasian. A final battle between Red Riding Hood and Goldilocks in book one uses a lot of gendered insults -- harlot and the like. Our daughter and other kids really love this series, and it's become a big franchise for Colfer. Adults will find it enjoyable enough, if also not well-edited.
 
 ## _A Tale of Magic_, Chris Colfer
+![](https://images-na.ssl-images-amazon.com/images/I/512aFeVd2UL._SX347_BO1,204,203,200_.jpg)
+
 This first book in a new series is a prequel to the _Land of Stories_ (see above). However, it warrants its own entry because it's clearly a more personal story. Rather than weaving together disparate Western fairy tales, Colfer has to provide the history of his own creation, so he gets to do some world-building independent of canonical fairy tales. Also, it's a fairly heavy-handed metaphor for the way gay people have historically (and, sadly, still) been treated. In his world, magic is something you are born with, and not necessarily along genetic lines. Magic children are beaten and abandoned by their family and their governments. There is even a point later in the book where someone talks about "coming out as magic." Colfer has clearly matured as a writer; this first book feels tighter than the _Land of Stories_ books.
 
 ## _Bliss_ series, Kathryn Littlewood
+![](https://images-na.ssl-images-amazon.com/images/I/619tb8cFwHL._SX334_BO1,204,203,200_.jpg)
+
 I swear that "magical parents who don't give their kids proper guidance on magic" is a whole subgenre of middle-school books. While this is certainly in that vein, the tension in the situation is well handled, the magic is interesting, and there is appropriate fix-everything silliness. In the first book, Rose is left in charge of the family bakery, which bakes normal treats but also magical ones, while her parents attend to a crisis in a nearby town. As soon as her parents are gone, mysterious "Aunt" Lily appears and puts the kids under a spell until they eventually surrender the treasured magic cookbook. Many hijinks ensue. There's a bit of girl-on-boy crushing and a whole lot of swooning by townspeople over her older brother's handsomeness (and relatively little space devoted to the fact that he gets to shirk a lot of work because of the handsomeness). I also don't know how I feel about the villainous aunt being a woman with ambition compared to the stay-out-of-the-way ethos of the "good" side of the family.
 
 ## _Eleven Birthdays_, Wendy Mass
+![](https://m.media-amazon.com/images/I/51ZTOWzWFmL._SY346_.jpg)
+
 Think _Groundhog Day_ for the middle-grade set. Amanda's eleventh birthday is going pretty poorly, which is a shame, since she's about to go through it ten more times. Turns out she and her once-friend Leo are stuck in a loop until they figure out how to get out of it. The actual resolution is hard to see coming, which is unfortunate, but along the way the kids do all the normal stuff you'd expect someone to do if they were stuck in this kind of loop. But over the course of the many birthdays, Amanda and Leo become friends again and become more sure of themselves. This is book one in the loosely connected set of books that make up the _Willow Falls_ stories.
 
 ## _Pie_, Sarah Weeks
+![](https://images-na.ssl-images-amazon.com/images/I/415G5oermwL._SX341_BO1,204,203,200_.jpg)
+
 Ipswitch's extraordinarily famous and talented (and economically self-sufficient thanks to inherited wealth) pie maker, Polly, dies without warning and leaves her piecrust recipe to her cat and her cat to her niece Alice, the protagonist. After that, various kid-appropriate hijinks and capers ensue until the mysterious bequest gets figured out. There are some odd scenes in the book -- a teacher whose bodybuilding horrifies her students being the most notable -- and the book adopts a tone that adults might find overly nostalgic for 1950s small-town Americana. Everything is resolved, a bit too neatly, right at the end, though the recipe inheritance has a nice twist. The book ends with a touching epilogue but doesn't really go into how the small town survived a massive hit to its pie-tourism income. Pie recipes (appropriately without recipes for the crust) form chapter divides, which will make you eager to bake by the end. I'll also note that while Polly and Alice prefer vegetable shortening for their crusts, lard is a better candidate in my mind.
 
 ## _The Library of Ever_, "Zeno Alexander"
+![](https://images-na.ssl-images-amazon.com/images/I/518R66hIo4L._SX331_BO1,204,203,200_.jpg)
+
 When Lenora stumbles into a new part of the library, she finds an archway into yet another library, one stunning in its breadth and activity. She's promptly hired and begins a career path that takes some unusual twists and turns. The library is perhaps one of the best fictional libraries ever, featuring massive rooms and halls stuffed with books, subways to take you from one section to another, steampunk conveyances, visitors from all of space and time, and a globe so big it has its own gravity. This unabashed (and maybe a bit heavy-handed) paean to libraries and knowledge starts out with a fairly thin plot that picks up in intensity towards the end.
 
 ## _Whatever After_ series, Sarah Mlynowski
+![](https://images-na.ssl-images-amazon.com/images/I/51IzrXSUXEL._SX345_BO1,204,203,200_.jpg)
+
 If you watched the show Super Why, you already have a sense of the plots here. In each book, Abby and her brother Jonah are pulled via magic mirror into a fairy tale (think Grimm, Anderson, and Carroll instead of Disney). They disrupt the normal story, and then have to fix it. Or at least get some things back on track. Our daughter loved the first book but petered out in the second one. Abby self-describes as "bossy" (*cough* internalized misogyny *cough*) and likes things to go according to plan. Her brother? Not so much. She seems fairly invested in making the romance stories continue on track.
 
 ## _Harry Potter_ series, J.K. Rowling
+![](https://images-na.ssl-images-amazon.com/images/I/61vwh7lDPCL._SX326_BO1,204,203,200_.jpg)
+
 You've probably heard of these. But while they're modern classics, it's worth remembering that they're also blatant illustrations of male privilege and patriarchy. Hermione is smart, hard-working, and powerful. But she's the sidekick to an average wizard/jock who is celebrated (and given lots of money) just for showing up. She's called "bossy," a pejorative term almost always used to rebuke smart, confident women who try to take charge. Her social justice movement is written as a source of ridicule and scorn. The person she wants to notice her doesn't see her as a woman until she's given a Cinderella moment on the stairs of a ball, i.e. when she's made herself conventionally attractive and objectifiable. Every significant leader is a male with female subordinates, and most of the major women fall into easy tropes: warm and motherly (Mrs. Weasley, Lily Potter), strict schoolmistress (Professor McGonigal), ethereal unobtainable beauty (Fleur DeLacouer), or spunky hip girl (Tonks).
 
 ## _Saving Winslow_, Sharon Breen
+![](https://images-na.ssl-images-amazon.com/images/I/413uybEWFML._SX334_BO1,204,203,200_.jpg)
+
 In theory, this is a great story for animal lovers: A child in a low-income suburban family nurses a sick donkey to full health until it can return to proper farm life. In practice, I felt like the text had an odd pacing that made it seem dreamlike. Passages of time would go by seemingly randomly. Without a lot of clues, you could be ahead a week or a month. Or maybe the whole book takes place in the span of a few weeks, but with no real context, it's hard to know. The neighbor girl who becomes a friend is given the barest rationale for her peculiar behavior. And, finally, I don't feel like you really get to know the titular donkey very well. Louie's attention to the donkey is a blatant and somewhat heavy-handed counterpoint to the fact that he misses his brother who's in the military.
