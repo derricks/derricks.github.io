@@ -15,6 +15,11 @@ We picked this book up when our daughter first became interested in books withou
 We love this series about Leonora Logroño and her family of _bruja_ bakers in small-town Texas. The first book sees Leo learning
 about the magic running through the women in her family as they all prepare for Dia de Los Muertos, and then misperforming her own magic to wild effect. There's a bit of sadness, though largely from Leo's friend, whose mom died from cancer before the book started. Mysteries and tense situations are resolved at a good pace, so young readers don't get too anxious or lose any threads. Fortunately, the book ends with recipes, because you'll want to eat something delicious as you read through! (This series will always have a special place; when our daughter switched to independent reading, we had been reading this out loud and she just decided to finish it on her own.)
 
+## _Nevermoor_ series, Jessica Townsend
+![](https://images-na.ssl-images-amazon.com/images/I/51b65ijCx1L._SX342_BO1,204,203,200_.jpg)
+
+I quite like (and my daughter loves) this series about Morrigan Crow, a Caucasian (at least according to the cover) child born on Eventide and thus cursed to die on her eleventh birthday. Instead of dying, though, she's whisked away to a magical place called Nevermoor, where she is entered into a series of trials to enter the Wundrous Society. There are obvious parallels to Harry Potter here -- an eleven-year-old taken from an abusive home to a magical realm, magical buildings and people, a school course load that will make kids envious, and a Chosen One trope -- but the books have their own vibe and the world feels wholly unique, especially by book two, when the author gives us a deeper look at Nevermoor and its many ways. The book gets pretty dark even by book two, but the "bad wizards bad and good wizards good" simplicity of Harry Potter is replaced by a more nuanced view. The Wundrous Society is a magical institution, but it's not hard to catch a fair amount of class resentment against its members. The Big Bad has clearly done bad things and is painted with a menacing brush, but he also helps Morrigan because he needs an ally in a larger fight that we are as yet unaware of.
+
 ## _Nothing But Trouble_, Jacqueline Davies
 ![](https://images-na.ssl-images-amazon.com/images/I/51bl24qO-cL._SX322_BO1,204,203,200_.jpg)
 
@@ -34,11 +39,6 @@ This lovely series introduces the Caucasian Penderwick family: four sisters, a d
 ![](https://images-na.ssl-images-amazon.com/images/I/51H44gdOBzL._SX329_BO1,204,203,200_.jpg)
 
 In this unusually formatted book, the reader gets an over-the-shoulder glance at fifth-grade journals. Typical (and not so typical) middle grade drama plays out not through straight narration but by putting connections together across the journals of eight students. One does hers all in poetry while another does his in screenplays and yet another does his in graphic-novel format. You get a peek into the troubles and triumphs of each student's life (from kids living in a garage to kids living in a mansion, kids going to private school and kids dealing with immigration issues), and the final act will have you cheering for the students' activism.
-
-## _Nevermoor_ series, Jessica Townsend
-![](https://images-na.ssl-images-amazon.com/images/I/51b65ijCx1L._SX342_BO1,204,203,200_.jpg)
-
-I quite like (and my daughter loves) this series about Morrigan Crow, a Caucasian (at least according to the cover) child born on Eventide and thus cursed to die on her eleventh birthday. Instead of dying, though, she's whisked away to a magical place called Nevermoor, where she is entered into a series of trials to enter the Wundrous Society. There are obvious parallels to Harry Potter here -- an eleven-year-old taken from an abusive home to a magical realm, magical buildings and people, a school course load that will make kids envious, and a Chosen One trope -- but the books have their own vibe and the world feels wholly unique, especially by book two, when the author gives us a deeper look at Nevermoor and its many ways. The book gets pretty dark even by book two, but the "bad wizards bad and good wizards good" simplicity of Harry Potter is replaced by a more nuanced view. The Wundrous Society is a magical institution, but it's not hard to catch a fair amount of class resentment against its members. The Big Bad has clearly done bad things and is painted with a menacing brush, but he also helps Morrigan because he needs an ally in a larger fight that we are as yet unaware of.
 
 ## _Upside-Down Magic_ series, Sarah Mlynowski, Lauren Myracle, Emily Jenkins
 ![](https://images-na.ssl-images-amazon.com/images/I/518m38L9mCL._SX342_BO1,204,203,200_.jpg)
