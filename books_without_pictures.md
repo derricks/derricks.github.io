@@ -55,6 +55,11 @@ I found this book really moving and thoughtful, with a number of layers, a good 
 
 Inspired by Chinese folklore, this quiet and poetic Caldecott winner features a young girl, Minli, venturing off to see the Old Man in the Moon and ask for her family's fortunes to be changed. Along the way, she encounters a range of characters, including a dragon who becomes a fast friend, who tell their own stories, which seem at first to be unrelated but ultimately all tie together in a rich tapestry that builds Minli's world effectively. By the time she actually gets to the Old Man, she's learned a lot about herself and what's really important in life. Some chapters focus on her parents and their reaction to their daughter's disappearance. There are illustrations in the book, again inspired by Chinese art, but they're sparse enough to keep this book in this list.
 
+## _Lalani of the Distant Sea_, Erin Entrada Kelly
+![](https://images-na.ssl-images-amazon.com/images/I/51YQDwSNYHL._SX329_BO1,204,203,200_.jpg)
+
+One blurb I saw about this book described it as "_Moana_ meets _From the Mountain to the Moon_" (see above). I very much agree with the latter -- the beautifully written book features a young girl on a quest that involves stories within stories in a universe of Filipino mythology. The former? I'm not so sure about, other than the fact that at some point Lalani is in a boat and her home island is having a bad spell. Where Moana is the daughter of a village chief, Lalani is a girl in a low social class -- a double whammy in the sexist society where she lives. When her mother falls ill and Lalani feels her own actions have endangered her village, she sets off to find the legendary island of Isa, where riches and happiness flow. But even Isa is not perfect, it turns out. The book leaves some questions dangling, deliberately I think. But you really get to know the characters and cheer their growth. Along the way, Lalani encounters a number of monsters, but manages to persist and ultimately triumph.
+
 ## _York: The Shadow Cipher_, Laura Ruby
 ![](https://images-na.ssl-images-amazon.com/images/I/51gZ3bEX7iL._SX328_BO1,204,203,200_.jpg)
 
