@@ -40,6 +40,11 @@ This book starts out as a gut-wrencher, at least for parents: Officials taking a
 
 This lovely series introduces the Caucasian Penderwick family: four sisters, a dog, and a widower father. The girls range in age from four to twelve in the first book, and the series follows along as they get older. The girls are richly drawn and have complicated relationships with each other, exasperated and loving at the same time. In the first book, they're vacationing in a "cottage" (that allows each family member to have their own bedroom and a study for the dad) that is on the grounds of an estate in the Berkshires. So you can expect fairly middle-class issues. Crushes and first kisses are definitely in play.
 
+## _The Vanderbeekers of 141st Street_, Karina Glaser
+![](https://images-na.ssl-images-amazon.com/images/I/5108wsGtt4L._SX329_BO1,204,203,200_.jpg)
+
+This series is often compared to the Penderwicks (see above), and it's not hard to see why: a sprawling group of siblings having everyday escapades and managing their relationships with each other and their lives. But while the Penderwicks are, as a friend says, "not just white but New England white" who vacation in the Berkshires, the Vanderbeekers are a biracial family living in one apartment in a New York City brownstone. The first book sees them trying to prevent their family from getting evicted at the holidays, and I really liked it. The family is quirky and boisterous, with diverse personalities among the kids. The way they tackle their problems is what you'd expect from modern-day kids. The family felt real and warm.
+
 ## _Operation Frog Effect_, Sarah Scheerger
 ![](https://images-na.ssl-images-amazon.com/images/I/51H44gdOBzL._SX329_BO1,204,203,200_.jpg)
 
