@@ -335,7 +335,7 @@ _Agatha, Girl of Mystery_ series, Stefano Turconi
   * Social commentary: The very wealthy protagonists are Caucasian (though the butler is more ambiguous, which doesn't help things) and the first book, at least, relies on a lot of stereotypes. The Egyptian natives are scared off by the idea of a curse. The German is fat and constantly eating (think Augustus Gloop). And the actual Egyptian Egyptologist is vaguely sinister and wears a robe of hieroglyphics. Plus the male protagonist says "everything is backwards here" about Egypt.
 
 ## Where The Line Between Chapter Books and Normal Books With Illustrations Fades
-These books are still chapter books in general, but one does begin to wonder in these books where the line is between "chapter book" and "just a book".
+These books are still chapter books in general, but one does begin to wonder in these books where the line is between "chapter book" and "just a book". Some of these are also just books with illustrations.
 
 _Bob_, Wendy Mass & Rebecca Stead
   * Premise: A magical creature has stayed put in a closet ever since the owner's granddaughter told him to. But that was five years ago, and she's just returned, having forgotten all about him.
@@ -371,6 +371,11 @@ _The Magic Misfits_ series, Neil Patrick Harris
   * Premise: A group of kids embodying different types of stage magic and performance solve problems in their small town.
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
+
+  _Voyage of the Frostheart_, James Littler
+  * Premise: Ash, a Song Weaver from a remote village, sets off on a quest to find his parents, accompanied by a ragtag crew.
+  * General thoughts: This book throws you into the action in the first few pages and rarely lets up. Ash's Song Weaving can control the dreaded Leviathans that lurk all through the snow sea of his world, but those same skills are reviled by many villagers because some Song Weavers end up going mad and bringing the monsters down on the villages. Or so they say. This is a fairly standard quest story, but the snow-covered, post-apocalyptic world with its voyaging sledges is compelling and easy to imagine.
+  * Social commentary: Ash's main friend on board the Frostheart is a girl and a person of color. Women don't have any particularly subordinate role, even in the villages where an author might unconsciously show more women cooking and cleaning than men.
 
 _Weird Little Robots_, Carolyn Crimi
   * Premise: Awkward Caucasion new kid Penny Rose befriends "class weirdo" Lark (also Caucasian), and the two discover that Penny Rose's robots have taken on a life of their own.
