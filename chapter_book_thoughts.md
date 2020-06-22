@@ -337,6 +337,11 @@ _Agatha, Girl of Mystery_ series, Stefano Turconi
 ## Where The Line Between Chapter Books and Normal Books With Illustrations Fades
 These books are still chapter books in general, but one does begin to wonder in these books where the line is between "chapter book" and "just a book". Some of these are also just books with illustrations.
 
+_Winterhouse_, Ben Guterson
+  * Premise: Elizabeth Somers is mysteriously given a vacation at the posh Winterhouse hotel, where she helps solve a generations-old mystery.
+  * General thoughts: If ever there were a book tailored to my interests, this is it. Bookworm Elizabeth Somers loves puzzles of all kinds, especially word puzzles, and uses that intellect -- and a chunk of magical assistance -- to solve a mystery tied to an old book she finds in the expansive library of a posh hotel. I stayed up late to finish this because I found the end so gripping. There's a fair amount of supernatural in here.
+  * Social commentary: A strong girl lead who solves puzzles through intelligence and creativity. While she is Caucasian, the new friend she meets and the hotel's librarian are both people of color.
+
 _Bob_, Wendy Mass & Rebecca Stead
   * Premise: A magical creature has stayed put in a closet ever since the owner's granddaughter told him to. But that was five years ago, and she's just returned, having forgotten all about him.
   * General thoughts: This is an interesting premise that quickly dodges a lot of the easy tropes, though there are still some to be found. Bob's story, and Livy's too, is pieced together by the two of them throughout the book, and the ending is quite a surprise.
