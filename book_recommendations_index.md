@@ -14,6 +14,7 @@ I also keep Goodreads shelves with ratings of many of the books I've read.
   * [Comics and Graphic Novels](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-comics)
   * [Books without pictures](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures)
   * [Books about kids and civic engagment](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-and-civic-engagement)
+  * [Kid lit mysteries](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-lit-mysteries&sort=rating)
 
 Here are some of the sources I use for finding new books:
 
