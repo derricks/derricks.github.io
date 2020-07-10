@@ -35,6 +35,11 @@ I really enjoyed this book about Maggie, a science-and-engineering expert who de
 
 This book starts out as a gut-wrencher, at least for parents: Officials taking away a new baby from a distraught mother to offer it to the witch in the woods. There is a witch in the woods, but she's somewhat befuddled by why the villagers abandon a kid each year. So she takes the kids and relocates them to other villages, where they often enjoy blessed lives thanks to the starlight the witch feeds them. But one year, she feeds the abandoned child moonlight, which fills her with intense, powerful magic. Xan then decides to raise Luna herself to try and contain her abilities. But once Luna reaches her 13th birthday, the protections begin to fade and some ancient history involving Xan resurfaces in dramatic fashion. This Newbery winner is an intense book. It's theoretically a kids book, but there's a lot going on, and there are definitely dark parts of the story.
 
+## _Unicorn Quest_ series, Kamilla Benko
+![](https://images-na.ssl-images-amazon.com/images/I/51byPHzp5XL._SX331_BO1,204,203,200_.jpg)
+
+It doesn't take too long for this book to get going as Claire and her big sister Sophie climb a ladder they find in their great-aunt's fireplace and end up in an entirely different world. Benko's Arden is a wonderfully constructed world, with four magical guilds that, in modern times, are tensely peaceful but don't intermingle. Claire, the younger sister, figures out that Sophie has been going back to Arden on her own and sets out find her and bring her home. Along the way, many of her assumptions turn out to be incorrect, but the two girls have deep ties to the world that become more clear as the books progress. The text in this moves along smoothly, and Claire is a likable, well-fleshed-out, independently-minded character.
+
 ## _Wildwood_, Colin Meloy
 ![](https://images-na.ssl-images-amazon.com/images/I/61h-DHwyNmL._SX385_BO1,204,203,200_.jpg)
 
