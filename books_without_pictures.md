@@ -155,6 +155,11 @@ When Lenora stumbles into a new part of the library, she finds an archway into y
 
 If you watched the show Super Why, you already have a sense of the plots here. In each book, Abby and her brother Jonah are pulled via magic mirror into a fairy tale (think Grimm, Anderson, and Carroll instead of Disney). They disrupt the normal story, and then have to fix it. Or at least get some things back on track. Our daughter loved the first book but petered out in the second one. Abby self-describes as "bossy" (*cough* internalized misogyny *cough*) and likes things to go according to plan. Her brother? Not so much. She seems fairly invested in making the romance stories continue on track.
 
+## _Code Busters Club_ series, Penny Warner
+![](https://images-na.ssl-images-amazon.com/images/I/61+DU8pJ9EL._SX338_BO1,204,203,200_.jpg)
+
+If your kid is going through their inevitable secret code phase, they may enjoy this series about four multiethnic kids who like to solve codes, ciphers, and other puzzles. The mysteries are pretty straightforward for adult readers and bigger kids, but throughout the book you'll find coded messages that you can solve right along with the characters. If you get stuck, the back of the book has keys to help you along, and if you get _really_ stuck, the books also feature the answers. There's a bit of stereotyping here: the Asian kid is good with computers, the Black kid is athletic and from the South. There's also some heteronormative crushing between protagonist Cody and Luke, and at one point in the first book, ME suggests to Cody that her nemesis is mean to her because he likes her, which is not okay messaging for girls. Still, this series features way more codes and ciphers than other similar books, and even a secret codes devotee is sure to learn some things from them.
+
 ## _Harry Potter_ series, J.K. Rowling
 ![](https://images-na.ssl-images-amazon.com/images/I/61vwh7lDPCL._SX326_BO1,204,203,200_.jpg)
 
