@@ -15,6 +15,7 @@ I also keep Goodreads shelves with ratings of many of the books I've read.
   * [Books without pictures](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures)
   * [Books about kids and civic engagment](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-and-civic-engagement)
   * [Kid lit mysteries](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kid-lit-mysteries&sort=rating)
+  * [Books featuring world-building, either as examples or how-tos](https://www.goodreads.com/review/list/7272957-derrick-schneider?ref=nav_mybooks&shelf=kid-lit-world-building)
 
 Here are some of the sources I use for finding new books:
 
