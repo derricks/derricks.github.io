@@ -55,6 +55,11 @@ This lovely series introduces the Caucasian Penderwick family: four sisters, a d
 
 This series is often compared to the Penderwicks (see above), and it's not hard to see why: a sprawling group of siblings having everyday escapades and managing their relationships with each other and their lives. But while the Penderwicks are, as a friend says, "not just white but New England white" who vacation in the Berkshires, the Vanderbeekers are a biracial family living in one apartment in a New York City brownstone. The first book sees them trying to prevent their family from getting evicted at the holidays, and I really liked it. The family is quirky and boisterous, with diverse personalities among the kids. The way they tackle their problems is what you'd expect from modern-day kids. The family felt real and warm.
 
+## _The Twelve_, Cindy Lin
+![](https://images-na.ssl-images-amazon.com/images/I/512v60-n2FL._SX334_BO1,204,203,200_.jpg)
+
+In our world, astrology is total fiction. But in this first book in a series, being born in, say, the Year of the Rabbit might give you rabbit-like powers. Usagi is one such girl with zodiac powers; she can hear quiet noises from far away and make tremendous leaps. When her sister is abducted by the Dragon Lord, who has seemingly purged the land of those with zodiac talents, she has to journey to Mount Jade to master her powers and rescue her sister. This book is a solid adventure with lots of magic and martial arts, and the story takes some twists, though adults may see them coming. It sets up nicely for the sequel, which we're looking forward to. My daughter really liked this story.
+
 ## _Operation Frog Effect_, Sarah Scheerger
 ![](https://images-na.ssl-images-amazon.com/images/I/51H44gdOBzL._SX329_BO1,204,203,200_.jpg)
 
