@@ -70,6 +70,11 @@ In this unusually formatted book, the reader gets an over-the-shoulder glance at
 
 Our daughter devoured this series, falling in love even before she opened the cover with its intensely adorable "dragon kitten" (or dritten.) Nory Horace lives in a world where magic is the norm. But while most people fall easily, predictably, and (one might say) boringly into a few categories with defined skills, Nory is different. Her magic goes "upside-down" or "wonky," much to the embarrassment of her family. She starts attending an Upside-Down Magic class with other kids (notably of very different skin tones; Nory herself is biracial) whose magic doesn't do what it's "supposed" to. It's pretty clear early on that she and her friends represent really powerful magic, as their teacher (an "Upside-Down" person as well) tries to help them control, understand, and use their unique abilities. It's very easy to find parallels to neurodiverse students here, and in the first book there are hints that being different has been squashed in the last century of the world's history.
 
+## _Dragon Pearl_, Yoon Ha Lee
+![](https://www.amazon.com/images/I/51zw8TvctML._SX331_BO1,204,203,200_.jpg)
+
+Protagonist Min is a real fox. A supernatural fox that is, one of the magical creatures drawn from Korean mythology that accompanied humans to the stars. While most of the supernaturals -- dragons, tigers, goblines, and more -- have found places in society, albeit not always to the comfort of their human colleagues, foxes are viewed with suspicion and most people think they're extinct. Foxes like Min can shape shift and use Charm to influence the feelings of humans and supernaturals alike. While her mother urges her to repress her Fox powers, Min must bring them fully into play when she sets off to rescue her brother Jun, a Space Forces soldier accused of deserting his post in order to go after the fabled Dragon Pearl, which has the ability to terraform planets quickly and easily. This is a well-written, fast-moving space opera, full of adventure, twists, and shifting alliances. While complete in itself, the book does set up for sequels.
+
 ## _Aru Shah and the End of Time_, Roshani Chokshi
 ![](https://images-na.ssl-images-amazon.com/images/I/51KHFiAY7OL._SX329_BO1,204,203,200_.jpg)
 
