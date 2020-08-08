@@ -170,6 +170,11 @@ Ipswitch's extraordinarily famous and talented (and economically self-sufficient
 
 When Lenora stumbles into a new part of the library, she finds an archway into yet another library, one stunning in its breadth and activity. She's promptly hired and begins a career path that takes some unusual twists and turns. The library is perhaps one of the best fictional libraries ever, featuring massive rooms and halls stuffed with books, subways to take you from one section to another, steampunk conveyances, visitors from all of space and time, and a globe so big it has its own gravity. This unabashed (and maybe a bit heavy-handed) paean to libraries and knowledge starts out with a fairly thin plot that picks up in intensity towards the end.
 
+## _Freya and the Magic Jewel_, Joan Holub & Suzanne Williams
+![](https://images-na.ssl-images-amazon.com/images/I/51MxP-nAFXL._SX334_BO1,204,203,200_.jpg)
+
+I checked out this book because I was drawn to cover art of a blond goddess with a twinkle in her eye in a chariot pulled by tabby cats. But the story reduces the Norse god of love and beauty to a ditzy teenager enrolled in Asgard Academy. Who! Narrates! Her Life! With! Lots of! Exclamation Points. My daughter enjoyed this middle-grade Disney-esque view of Norse mythology -- first in a series -- well enough, but I found the book teeth-gratingly annoying and the primary character mostly unlikeable.
+
 ## _Whatever After_ series, Sarah Mlynowski
 ![](https://images-na.ssl-images-amazon.com/images/I/51IzrXSUXEL._SX345_BO1,204,203,200_.jpg)
 
