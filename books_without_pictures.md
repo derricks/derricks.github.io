@@ -150,6 +150,11 @@ Tweens Alex and Conner tumble into a book/portal and find themselves in a world 
 
 This first book in a new series is a prequel to the _Land of Stories_ (see above). However, it warrants its own entry because it's clearly a more personal story. Rather than weaving together disparate Western fairy tales, Colfer has to provide the history of his own creation, so he gets to do some world-building independent of canonical fairy tales. Also, it's a fairly heavy-handed metaphor for the way gay people have historically (and, sadly, still) been treated. In his world, magic is something you are born with, and not necessarily along genetic lines. Magic children are beaten and abandoned by their family and their governments. There is even a point later in the book where someone talks about "coming out as magic." Colfer has clearly matured as a writer; this first book feels tighter than the _Land of Stories_ books.
 
+## _Caley Cross and the Hadeon Drop_, Jeff Rosen
+![](https://images-na.ssl-images-amazon.com/images/I/518s-OpM+sL._SX322_BO1,204,203,200_.jpg)
+
+Caley Cross is just your typical Caucasian 13-year-old at the beginning of this book, the first in a new series. Except for the fact that she lives in an abusive orphanage and can reanimate dead animals. But after one such zombie incident, she's whisked off to the world of Erinath, where it turns out she's the long-lost highest-ranking princess, daughter of the former Queen. In Erinath, children bond with creatures -- their "baests" -- who shape their magic and their lives in unique ways. While she soon makes some fast friends, she also soon meets a mean girl intent on humiliating her and learns that an evil Watcher is after her. There are some fat jokes, and one characters whose whole existence seems to be so the authors can mock "political correctness," but this is a fast-paced adventure story with many thematic elements in common with Harry Potter. You can read [my longer GeekDad review as well](https://geekdad.com/2020/08/review-caley-cross-and-the-hadeon-drop/).
+
 ## _Bliss_ series, Kathryn Littlewood
 ![](https://images-na.ssl-images-amazon.com/images/I/619tb8cFwHL._SX334_BO1,204,203,200_.jpg)
 
