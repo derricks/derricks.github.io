@@ -78,6 +78,11 @@ This richly drawn comic (whose style evokes _Fish Girl_ below) features Trot, a 
 
 There's a lot going on in these pages, which is largely about a group of kids having intense imaginary play, fueled by discarded cardboard. The artwork goes back and forth between how an adult might see the kids -- boxes on heads and chunky cardboard accessories -- and how they see themselves -- heavily stylized with flowing robes and glowing armor. There are kids with family issues, kids of color and different sexual orientation, kids with big imaginations, and kids with more analytic streaks. The stories in the book tie together, but largely focus on particular characters for their arc.
 
+### _Doodleville_, Chad Shell
+![](https://images-na.ssl-images-amazon.com/images/I/51HQdlvC5HL._SX329_BO1,204,203,200_.jpg)
+
+In Drew's world, the term "dynamic art" takes on a whole new meaning. Drawings and paintings aren't confined to the page they're on. But Drew's Doodles don't behave themselves the way other kids' characters do, and this puts Drew at odds with her classmates as she tries to wrangle her boisterous art. When a museum trip inspires her to draw a leviathan, she accidentally infuses it with her own self-doubt and anxiety, and it becomes a fearsome monster that wreaks havoc on her friends' sketchbooks. Between this and _The Cardboard Kingdom_ (see above), I'd happily just buy anything Chad Sell produces. This world is imaginative and allows him to tell a story about feelings and friends that is reminiscent of _Sketch Monsters_ (also see above) but for a somewhat older crowd.
+
 ### _Hilo_ series, Judd Winick
 ![](https://m.media-amazon.com/images/I/51icAe7ndrL.jpg)
 
