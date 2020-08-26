@@ -53,10 +53,16 @@ I mean, it's called _CatStronauts_ and the primary characters are Waffles, Pom-P
 
 The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
 
+
 ### _Hilda_ series, Luke Pearson
 ![](https://images-na.ssl-images-amazon.com/images/I/51AUfTQ3gmL._SX358_BO1,204,203,200_.jpg)
 
 One of our favorite series. The adventures of a Caucasian blue-haired girl who lives in a vaguely Nordic area and has lots of adventures with the fantastic creatures she meets there. Hilda is a great character, not just because she's a clever, adventuring girl, but also because she feels real. She rolls her eyes at her mum's attention, has realistic reactions to friends, and so on. But she's a fundamentally good kid. Midnight Giant is my favorite of the series for its parallel structure, but our daughter's favorite is The Black Hound. There's a Netflix series about her as well, though it departs fairly strongly from the books.
+
+### _Drew and Jot_, Art Baltazar
+![](https://images-na.ssl-images-amazon.com/images/I/51bKTT25NsL._SX331_BO1,204,203,200_.jpg)
+
+Drawings escaping from a child's notebook and into the real world is a popular idea with authors who write for children: Just in this list there's _Sketch Monsters_ (above) and _Doodleville_ (below). This brightly colored, boldly drawn book sees two boys who both love to draw swapping ideas for their two favorite characters, whose adventures play out as pages in this book with occasional peeks back into our world. And then Andrew's young sister gets in on the fun, and things go really bonkers. A cuckoo plot with lots of action makes this a quick, enjoyable read.
 
 ### _Cucumber Quest_ series, Gigi D.G.
 ![](https://m.media-amazon.com/images/I/518YLC+cr+L.jpg)
