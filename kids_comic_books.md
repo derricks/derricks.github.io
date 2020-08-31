@@ -145,6 +145,11 @@ Yes, _that_ Diana. This is a cute, lower-middle grade entrypoint for Wonder Woma
 
 This sweet and simple story features young Lana visiting her Aunt Mae at the seaside town where Lana and her family lived before her mom -- Mae's sister -- died at sea. While there, she takes care of a small not-quite-seahorse (the titular aquicorn) and learns that her aunt once met an undersea resident but ignored her pleas to take better care of the ocean, saying there wasn't anything the small village could do in the face of such destruction. By the end, the land dwellers have come around to taking care of the ocean better, even in small ways. Aunt Mae is a a muscular, dark-skinned woman (Lana is drawn as lighter-skinned, as is her mother), and some readers might read her friendship with the underwater woman as romantic, but that's only hinted at in the text.
 
+### _Bone_ series, Jeff Smith
+![](https://m.media-amazon.com/images/I/51K2-fwKmYL.jpg)
+
+Ask a dozen current, middle-ageish comics artists for inspirations, and _Bone_ is likely to come up a few times. But I personally found it kind of meh. My daughter loved the antics of the blob-headed Bones, from everyman Fone Bone to conniving Phoney Bone to dim-witted Smiley Bone, but I found it tough to care about any of the characters or their plights, and all the characters seemed like exaggerated types. That said, the story takes a number of twists and turns and is fairly epic in nature, so it has a lot going for it. Note that many of the characters smoke.
+
 ### _Amulet_ series, Kazu Kibuishi
 ![](https://m.media-amazon.com/images/I/51-FQ6P5WBL.jpg)
 
