@@ -125,6 +125,11 @@ I've read a lot of best-friend drama -- a staple of fiction aimed at elementary 
 
 Things are not going well for Micah. His grandfather, who took him in after his parents died, is dying, and his grandfather's sister has moved in to tend to him. But she thinks the magical tales Ephraim tells are hogwash. Micah doesn't, and pines to experience the Circus Mirandus himself. His grandfather arranges for a letter to be sent asking the illusionist known as the Lightbender to give him the miracle he's owed. Thus begins a journey in which Micah gets to visit the circus himself, along with his skeptical friend, who can't see the circus until she believes, at least a little, in its magic. There are some solid tropes here, but the story puts a new enough spin on "believing in magic makes it real" that even adults will enjoy it. The story is also fairly deep and sets up nicely for the sequel. The sequel, _The Bootlace Magician_ is a more typical adventure, and it immerses you deeply into the circus's world, but you need to know what's in the first book before reading that one.
 
+## _Casey Grimes: The Mostly Invisible Boy_, AJ Vanderhorst
+![](https://images-na.ssl-images-amazon.com/images/I/41gXTt5XZ2L._SX322_BO1,204,203,200_.jpg)
+
+Casey Grimes has spent the school year lonely and frustrated by his near-invisibility. If he makes a loud noise, a fellow student might notice him for up to a few seconds. But then it will be as if he didn't exist. His loneliness spurs him deep into the nearby forest, where he finds and climbs a monstrous oak tree. High up in its branches, he discovers a magical world named Sylvan Woods, where the parents are off at "the front" battling nightmare versions of our forest wildlife and the kids are learning how to take their own positions as defenders of the forests and "Civilians" such as Casey and ourselves. There's lots of nature appreciation in this book, as well as adventure and magic. You can read [my longer review at GeekDad](https://geekdad.com/2020/08/review-casey-grimes-1-the-mostly-invisible-boy/).
+
 ## _Jinxed_, Amy McCulloch
 ![](https://images-na.ssl-images-amazon.com/images/I/514sS0fghKL._SX331_BO1,204,203,200_.jpg)
 
