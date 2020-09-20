@@ -145,6 +145,11 @@ Willow is feeling pretty depressed about her mother's recent death, and the scho
 
 Yes, _that_ Diana. This is a cute, lower-middle grade entrypoint for Wonder Woman, written by the Hales -- most known in our household for _The Princess in Black_. In this story, Diana bemoans being the only child on an island full of adults who are immortal and the best at everything they do. Especially when her mom has less and less time for her. So, remembering her own origin story, she seemingly creates a friend for herself out of clay and sand. The friend isn't what she seems, but before we find that out, we see her tempting Diana into mischief and troublemaking against her Paradise Island neighbors. There are some nods to the larger Wonder Woman universe, but you needn't know anything about that character to enjoy this story.
 
+### _Zatanna and the House of Secrets_, Matthew Cody
+![](https://images-na.ssl-images-amazon.com/images/I/51BrAQesG6L._SX342_BO1,204,203,200_.jpg)
+
+Much like _Diana: Princess of the Amazons_, _Zatanna and the House of Secrets_ tells a story of the teenage years of a DC superheroine, though this one somewhat less well known than Wonder Woman. I don't know much about Zatanna the character, but this is a fun story in which she learns that not only is her dad not simply a stage magician, but that she too is a real magician who can make things happen by saying words backwards. And her house is named The House of Secrets, full of mysterious magic. And the family's pet rabbit can talk. Big day! In this adventure, she has to stop The Witch Queen from taking over the House and rescue her dad. As with _Diana_, I'm sure there are allusions to Zatanna's more adult storylines, but you certainly don't need to know them to enjoy the story.
+
 ### _Aquicorn Cove_, Katie O'Neill
 ![](https://m.media-amazon.com/images/I/51S2bI7XFaL.jpg)
 
