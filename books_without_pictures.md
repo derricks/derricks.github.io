@@ -155,6 +155,11 @@ Do your kids like robots? Pets? Intense robot battles? Smartphones? Then this ma
 
 Our daughter devoured this series about a Caucasian girl and her family who live in a magical castle that reshapes itself on a regular basis, usually based on its own thoughts and visions of the future. The book has some intense adventuring, featuring fight scenes and political intrigue. There's a bit of heterosexual crushing and falling in love here and there, the griffins introduced later in the series are sort of a deus ex machina, the book's wizards have fairly patriarchal and patronizing views about women, and it's easy to raise eyebrows at the fact that the Castle never seems to choose a girl as heir to the throne -- what are the protagonist's real options in her future? -- but this is overall a fun series with a girl at the center who's primarily lauded for her intelligence and resourcefulness.
 
+## _Girls Who Code_ series, Stacia Deutsch
+![](https://www.amazon.com/Friendship-Code-Girls-Who/dp/0399542515)
+
+The slim books in this series hold fairly typical upper-elementary/middle-grade themes -- friendship, collaboration, misunderstanding -- set against a backdrop of girls learning to program and make their ideas come to life. This book is enthusiastic about girl programmers: Lucy's mom is a programmer, and the coding club she's in seems to be predominantly girls, all of different races and backgrounds. The first book walks you through the key things you need to know about programming: input/output, conditionals, loops, and variables. But not in any recognizable programming language, which is obviously part of the point; those concepts exist in every language. One thing I really enjoyed about this series is that everyone is full of ideas about programs they want to write. It's not just about writing a game, which is where most "get kids coding" efforts start, but about writing programs that solve a problem, whether it's reminding a beloved relative to take their medicine or helping sick kids get homework from classmates. I feel like this really respects kids' ideas and helps underscore the fact that programming is a tool that can help across a wide swath of problems relevant to their lives.
+
 ## _The Vengekeep Prophecies_, Brian Farrey
 ![](https://images-na.ssl-images-amazon.com/images/I/61b5FVVbyQL._SX334_BO1,204,203,200_.jpg)
 
