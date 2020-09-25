@@ -104,7 +104,7 @@ Avanti is having a hard time fitting in to her new school in this first book of 
 ### _Phoebe and Her Unicorn_ series, Dana Simpson
 ![](https://images-na.ssl-images-amazon.com/images/I/51hu6SdkyoL._SX331_BO1,204,203,200_.jpg)
 
-This series is pretty witty, but note that a lot of the humor relies on sarcasm and the common experiences of grade school kids. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate _Phoebe and Her Unicorn_), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school.
+This series is pretty witty, but note that a lot of the humor relies on sarcasm and the common experiences of grade school kids. The series features a Caucasian girl who befriends an astonishingly vain unicorn. It's often compared to Calvin and Hobbes (sadly, as in "Calvin and Hobbes for girls" as if girls can't appreciate Calvin and Hobbes or boys can't appreciate _Phoebe and Her Unicorn_), probably because the unicorn often has wry observations of humanity and Phoebe is a bit of an outsider at school. This is a series my daughter returns to again and again.
 
 ### _Babymouse_ series, Jennifer & Matthew Holm
 ![](https://m.media-amazon.com/images/I/51dLjAdHS5L.jpg)
