@@ -113,6 +113,7 @@ Lots of kids love this series about a mouse going through school and having typi
 
 ### _Pets on the Loose!_ series, Victoria Jamieson
 ![](https://m.media-amazon.com/images/I/51w32nn69nL.jpg)
+
 What happens when well-known rodent criminals get turned into school pets? Well, they go a bit soft. Their priorities change. And suddenly they're battling their equivalents from the older kids' classrooms. Goofy plots and elaborate capers make for an enjoyable, light read
 
 ### _Misadventures of Salem Hyde_ series, Frank Cammuso
