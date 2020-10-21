@@ -69,6 +69,11 @@ Drawings escaping from a child's notebook and into the real world is a popular i
 
 This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
 
+### _Once Upon a Space-Time_, Jeffrey Brown
+![](https://images-na.ssl-images-amazon.com/images/I/51+--qZs-PL._SX329_BO1,204,203,200_.jpg)
+
+This graphic novel reads more like a narrative arc told through comic strips, and is a good step up for those who liked _Catstronauts_ (see above) but maybe aren't quite ready for _Sanity and Tallulah_ (see below). When humanity makes first contact with a prank-loving alien named Tobey (who is in fact merely one of the many Tobey clones, all called Tobey), elite astronauts are excited to venture into space with the high-tech systems Tobey has shared with us. Instead, two human children are chosen -- it's not really clear why -- and venture off to Mars, where they meet other aliens and stumble through a series of mild adventures. Lots of kid-friendly humor mixes with reasonable science and facts to create a somewhat absurd story that is sure to keep kids laughing.
+
 ### _Princess Princess Ever After_, Katie O'Neill
 ![](https://images-na.ssl-images-amazon.com/images/I/51cwUO0Si3L._SX331_BO1,204,203,200_.jpg)
 
