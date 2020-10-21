@@ -85,6 +85,11 @@ As the book starts, Ivy Sparrow is riding in an ambulance with her grandmother S
 
 The premise of this is clever: What does your life look like if you're the daughter of a Dark Lord and heir to his power, title, and estate? Clementine lives alone with her father and is gradually learning what she needs to become a Dark Lord in her own time. But when her father gets cursed by a nearby witch, Clementine has to take on more of the estate's responsibilities. She decides to figure out how to save him, and wanders off to find a cure. In the first act, numerous characters think about killing the nearby unicorn, though that confrontation doesn't take place until the third act. In the second, Clementine makes new friends -- which Dark Lords are _not_ supposed to do -- and begins to build not only a new "family" but also the confidence to find her own way. Early on, it's clear that Clementine isn't exactly standard Dark Lord fare, so don't worry about rooting for the bad guy (or girl). Rather, the book touches on familial love even when nontraditional, the power of friendships, and the desire for independence.
 
+## _A Pinch of Magic_, Michelle Harrison
+![](https://images-na.ssl-images-amazon.com/images/I/515Wkxc7QEL._SX326_BO1,204,203,200_.jpg)
+
+When Betty Widdershins learns the women of her family are cursed to never be able to leave their small community, she becomes determined to break the curse -- especially after her two sisters are kidnapped to beyond the boundary, starting the clocks ticking on their imminent death. The three sisters are aided by three magical items that give them the ability to turn invisible, see far afield, or travel anywhere instantly. This is a tense adventure -- the omens of impending death add a lot of anxiety and stress to an already fraught situation --  that celebrates sisterhood, teamwork, and empathy. See my [full review on GeekDad](https://geekdad.com/2020/10/review-a-pinch-of-magic-delivers-sisters-sorcery-and-suspense/).
+
 ## _Operation Frog Effect_, Sarah Scheerger
 ![](https://images-na.ssl-images-amazon.com/images/I/51H44gdOBzL._SX329_BO1,204,203,200_.jpg)
 
