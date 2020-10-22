@@ -53,6 +53,10 @@ I mean, it's called _CatStronauts_ and the primary characters are Waffles, Pom-P
 
 The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
 
+### _Yotsuba&!_, Kiyohiko Azuma
+![](https://images-na.ssl-images-amazon.com/images/I/61JqkW3-qFL._SX323_BO1,204,203,200_.jpg)
+
+This popular manga features the adventures of an energetic and curious five-year-old after she and her adoptive father move to a new house. She quickly befriends the neighbor girls and has a variety of cuckoo (but age-appropriate) adventures with plenty of slapstick and misunderstandings. American parents might be surprised by the independence she's given, and will definitely notice adult topics such as her dad's friend accusing the dad of sleeping with one of the underage neighbor girls (he was't), but our daughter enjoyed the silly antics of a younger child.
 
 ### _Hilda_ series, Luke Pearson
 ![](https://images-na.ssl-images-amazon.com/images/I/51AUfTQ3gmL._SX358_BO1,204,203,200_.jpg)
