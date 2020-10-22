@@ -73,6 +73,11 @@ Drawings escaping from a child's notebook and into the real world is a popular i
 
 This zany and far-reaching fantasy series features an ensemble cast, dubious motivations, and witty dialog. Parents will see a lot of extra jokes, but kids will enjoy it, too. The book starts with a "chosen one" rabbit creature who doesn't really want to be chosen, while his sister is all about the fighting. At one point, she deliberately helps the villains in the piece so that she'll have something to fight. The two collect extra friends as they wander the kingdom to power the sword that will defeat the gigantic Nightmare Knight. At least for a bit. This also exists as a webcomic if you want to read it that way.
 
+### _Nico Bravo_ series, Mike Cavallaro
+![](https://images-na.ssl-images-amazon.com/images/I/51pq0nMsi9L._SX331_BO1,204,203,200_.jpg)
+
+Nico Bravo is a clerk at Vulcan's Celestial Supply Shop when Eowulf, the great-great-etc. granddaughter of Beowulf, comes in to the shop. She's determined to slay Cerberus, and Nico ends up going with her in an attempt to dissuade her. Not all monsters are bad, he tells her. The two end up romping around various mythological universes in their parallel quests. Meanwhile, the unicorn who's also a clerk finds himself on a time-traveling adventure to the future where Nico has not been successful stopping Eowulf. Lots of zaniness and silliness, but the epilogue sets up for a deeper plot.
+
 ### _Once Upon a Space-Time_, Jeffrey Brown
 ![](https://images-na.ssl-images-amazon.com/images/I/51+--qZs-PL._SX329_BO1,204,203,200_.jpg)
 
