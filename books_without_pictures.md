@@ -65,6 +65,11 @@ This lovely series introduces the Caucasian Penderwick family: four sisters, a d
 
 This series is often compared to the Penderwicks (see above), and it's not hard to see why: a sprawling group of siblings having everyday escapades and managing their relationships with each other and their lives. But while the Penderwicks are, as a friend says, "not just white but New England white" who vacation in the Berkshires, the Vanderbeekers are a biracial family living in one apartment in a New York City brownstone. The first book sees them trying to prevent their family from getting evicted at the holidays, and I really liked it. The family is quirky and boisterous, with diverse personalities among the kids. They're engaged with their wider community and the social issues facing it. The way they tackle their problems is what you'd expect from modern-day kids. The family felt real and warm.
 
+## _Front Desk_ series, Kelly Yang
+![](https://images-na.ssl-images-amazon.com/images/I/51dN99OdBtL._SX341_BO1,204,203,200_.jpg)
+
+This series starts out with the semiautobiographical story of Mia Tang, a girl whose parents brought her from China to forge a better life. Unfortunately, racism and anti-immigration sentiment in the United States have made for hard going. But the motel where they've started working offers some hope. At least until the Chinese-born owner proves he's just as willing to exploit them as native-born managers. Mia fumes at his callous and racist attitudes. When she applies to an essay-writing contest that looks to be a ticket out of her family's drudgery, she discovers that writing -- even as a non-native English speaker -- is a skill that can be deployed in other ways as well. Pretty soon, she's writing letters to help her friends, right wrongs, and build a community around her. The second book, _Three Keys_ zooms out a bit to talk about how anti-immigration sentiment affects many lives, particularly her friend Lupe's, but once again Mia rallies a community of kind people, many of them recent immigrants themselves. Mia is a great character: determined, creative, and possessed of a strong moral compass. And these books grip you emotionally with the ups and downs of her family's struggles.
+
 ## _The Twelve_, Cindy Lin
 ![](https://images-na.ssl-images-amazon.com/images/I/512v60-n2FL._SX334_BO1,204,203,200_.jpg)
 
