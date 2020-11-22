@@ -165,6 +165,11 @@ Picture _Men in Black_, but written for middle graders and filtered through a le
 
 I've read a lot of best-friend drama -- a staple of fiction aimed at elementary and middle school readers -- at this point, but this was easily one of the most tense of those I've read. The titular Mya Tibbs is a character who stands out from the middle-grade genre: a cowgirl-loving African American who lives in Texas. In this first book in a series, she finds out that her best friend is not so much of a friend and that the school "bully" is a thoughtful, kind person. Even knowing this early on, I was at the edge of my seat as Mya navigated this growth during her school's Spirit Week.
 
+## _The Inventors at No. 8_, A. M. Morgen
+![](https://images-na.ssl-images-amazon.com/images/I/513jJqZwXpL._SX339_BO1,204,203,200_.jpg)
+
+George, the 3rd Lord of Devonshire, has resigned himself to a dull life trapped in his home because of the curse of bad luck he believes he's stuck with. And then Ada Byron, the future Ada Lovelace, enters his life. She buys a map that is his last possession and purports to tell the location of the Star of Victory, a maginificent jewel. The two set off to recover the gem with Ada's friend Oscar and his organutan companion Ruthie. Their adventure takes them to Switzerland and Venice as they dodge the shadowy Organization and damage their friendship. The adventure itself is one of those silly things where it seems like everyone in Europe manages to know everyone else, and can be a bit convoluted to follow, but it's a lot of fun and has numerous twists and turns.
+
 ## _Circus Mirandus_, Cassie Beasley
 ![](https://images-na.ssl-images-amazon.com/images/I/51cplwK0WXL._SX325_BO1,204,203,200_.jpg)
 
