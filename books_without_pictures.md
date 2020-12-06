@@ -175,6 +175,11 @@ I've read a lot of best-friend drama -- a staple of fiction aimed at elementary 
 
 George, the 3rd Lord of Devonshire, has resigned himself to a dull life trapped in his home because of the curse of bad luck he believes he's stuck with. And then Ada Byron, the future Ada Lovelace, enters his life. She buys a map that is his last possession and purports to tell the location of the Star of Victory, a maginificent jewel. The two set off to recover the gem with Ada's friend Oscar and his organutan companion Ruthie. Their adventure takes them to Switzerland and Venice as they dodge the shadowy Organization and damage their friendship. The adventure itself is one of those silly things where it seems like everyone in Europe manages to know everyone else, and can be a bit convoluted to follow, but it's a lot of fun and has numerous twists and turns.
 
+## _Mars Evacuees_ series, Sophia McDougall
+![](https://images-na.ssl-images-amazon.com/images/I/519DIS-BupL._SX333_BO1,204,203,200_.jpg)
+
+One of my favorite things about this series was hearing my daughter try to pronounce the words and names from the alien species presented within. But aside from that, this is a pretty solid middle grade sci-fi book. Alice Dare, daughter of one of the most famous pilots fighting against the Morror aliens who have begun to take over Earth, is sent to Mars with a few hundred other kids to train as cadets. But a few months into their training, all the adults leave. Alice finds herself in a _Lord of the Flies_ situation and leaves the base to find the adults along with her super-smart (and notably Black) friend Josephine, class clown Carl and his brother, and one of the teaching robots. While terraforming has begun on Mars, it's still early and the kids have a tough go of it. Along the way, they meet a Morror and learn more about why the Morror came to Earth at all. By the end of the book, the Earthlings and Morror have teamed up against a common threat, thanks to the kids, and book two sees them trying to combat that threat while meeting still more aliens.
+
 ## _Circus Mirandus_, Cassie Beasley
 ![](https://images-na.ssl-images-amazon.com/images/I/51cplwK0WXL._SX325_BO1,204,203,200_.jpg)
 
