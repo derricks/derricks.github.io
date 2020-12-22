@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Murder is Bad Manners_, Robin Stevens
+![](https://images-na.ssl-images-amazon.com/images/I/51N-7UP3izL._SX329_BO1,204,203,200_.jpg)
+
+This clear homage to Agatha Christie books moves the action to a girls' school in the 1930s and sets two middle-graders, Daisy Wells and Hazel Wong, as the detectives solving the crime. My daughter really enjoys this series. When Hazel discovers a dead body in the school gym, the two girls go to work to solve the mystery. Suspects are brought up and eliminated, clues are followed, and various leads get misinterpreted until the final reveal. I don't know how easy the right answer is to get on one's own; my daughter told me the ending before I read the book. Daisy is that insufferable pretty, upper-class child who everyone adores and gets away with anything she wants, more or less, and is clearly accustomed to that devotion. Hazel definitely faces some racism at the school -- she's from Hong Kong -- but it's a side thread and probably better represents Hazel's day-to-day experience as it would be at that time period.
+
 ## _Once Upon a Unicorn_, Lou Anders
 ![](https://images-na.ssl-images-amazon.com/images/I/51jvo7zeCNL._SX329_BO1,204,203,200_.jpg)
 
