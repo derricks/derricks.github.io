@@ -349,6 +349,11 @@ Each volume in this series is packed with lots of good information. Most have a 
 
 Parents note: This is definitely better for older kids; there's some borderline explicit content. Aside from that, this is a typically warm and sympathetic Jamieson book focused on Imogene, who was homeschooled until middle grade and whose parents work at the local Renaissance Faire. She tries to navigate middle school's many challenges, framing them in the context of a Middle Age story of knights and dragons and getting advice from her "Faire-mily." The middle grade tropes are in full force: befriending the popular girl and learning she's actually horrible, odd thoughts about boys, insecurity about her clothes and house, and finding a true friend after doing something mean to her as prompted by the queen bee mean girl. Meanwhile, you'll get some behind-the-scenes views of Ren Faires and how they work.
 
+### _The Daughters of Ys_, M.T. Anderson
+![](https://images-na.ssl-images-amazon.com/images/I/51oirxCDSTL._SX357_BO1,204,203,200_.jpg)
+
+Note that this contains images of, uh, people kissing while naked in bed. It's also a pretty dark tale, a retelling of an old Breton myth in which one of two sisters sacrifices men to the dark spirits who keep the city of Ys safe from the encroaching sea. The older sister would prefer to spend her time in nature, but ultimately is betrayed by her younger sibling and hardens her heart. In the end, the sacrificial payment isn't made and the city of Ys is destroyed by the ocean. So save this for when your kids are old enough!
+
 ### _Earth Before Us_ series, Abby Howard
 ![](https://images-na.ssl-images-amazon.com/images/I/51nrh8gh8WL._SX311_BO1,204,203,200_.jpg)
 
