@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Castle Hangnail_, Ursula Vernon
+![](https://images-na.ssl-images-amazon.com/images/I/51HMOJjmnUL._SX331_BO1,204,203,200_.jpg)
+
+I don't know that I can set up the premise better than the official description: "When Molly shows up on Castle Hangnail's doorstep to fill the vacancy for a wicked witch, the castle's minions are understandably dubious. After all, she is twelve years old, barely five feet tall, and quite polite." This is a sweet story about a young girl who is _maybe_ not quite as wicked as she claims to be. Though she is there because she stole -- sort of? -- the invitation to become Mistress of the titular castle. And she does have very Witchy boots. But despite the minions' skepticism, Molly uses a tome of spells to win their trust and the hearts of the townspeople nearby, while also saving the castle from being decommissioned and realizing that the "friend" who helped her learn magic was manipulative and mean. Ursula Vernon writes often for the middle grade set, and she knows her audience. Jokes are aimed at kids but not overly gross, and the whole thing is quite gentle and easy. Definitely one for the Goth parents who will share Molly's appreciation for black lace and dusty, gloomy castles.
+
 ## _Murder is Bad Manners_, Robin Stevens
 ![](https://images-na.ssl-images-amazon.com/images/I/51N-7UP3izL._SX329_BO1,204,203,200_.jpg)
 
