@@ -319,6 +319,11 @@ It's hard to sympathize with Dee Diesel, the Caucasian protagonist of this sci-f
 
 If _Lumberjanes_ isn't feminist enough for you, be sure to check out this series in which princess Adrienne (who is Black) effects her own rescue from the tower her sexist, misogynist father put her into. After convincing her guardian dragon to side with her and befriending a woman dwarf blacksmith, the princess sets off to rescue her sisters and others she finds locked up. Her brother, meanwhile, is a disappointment to their father because he wants to go into theater. The first book features an amusing look at "traditional" armor for women that might require an explanation if your child hasn't seen the typical ludicrous bikini armor of male-gaze artwork.
 
+### _Trespassers_, Breena Bard
+![](https://images-na.ssl-images-amazon.com/images/I/51GNaPNwGxL._SX389_BO1,204,203,200_.jpg)
+
+Gabby's family's annual stay in Wisconsin's North Woods goes a different route this year when she wonders about the large, empty house nearby. Prompted by her mom, she decides to write a mystery story about the house, and her imagination quickly takes over, especially as new North Woods visitor Paige makes the fictional story seem more and more plausible. By the time Gabby learns the truth, she is sure that the cabin's kind neighbor in fact committed a double murder years ago. He didn't. There's a lot going on in the background of this story. Paige rebels against her parents because she loathes the fact that they're defense attorneys who defend criminals. Gabby's oldest sister is applying to college, and a tense backdrop develops as Gabby's dad is made redundant at his current job. Meanwhile, the family enjoys the cabin, kayaks, and swims like any other normal camping family.
+
 ### _Mouse Guard_ series, David Petersen
 ![](https://images-na.ssl-images-amazon.com/images/I/6106OZNZzUL._SY498_BO1,204,203,200_.jpg)
 
