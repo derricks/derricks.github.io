@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Toaff's Way_, Cynthia Voigt
+![](https://images-na.ssl-images-amazon.com/images/I/51Pn9RILqjL._SX329_BO1,204,203,200_.jpg)
+
+Oh, I loved the language in this squirel's-eye-view story -- a more common genre of middle-grade fiction than you'd expect -- right out of the gate. "Sometimes everything was so wonderful all you could do was whuffle." "...the squirrel voices were filled with slow churring sounds, not at all like the quick chuk-chukkings in his own den..." The rich soundscape of the farm where the book is set is on constant display. Cows muuh muuh, sheep bua bua, and dogs mostly yark. Or Yark! The farm is a wide world for the curious Toaff, who doesn't just accept the things he's told at face value. As the meditative story unfolds -- the book spans a year of Toaff living his life -- Toaff explores more of the farm and meets more of its denizens, all of whom have views about the world that sound humorous to our ears -- my daughter was in stitches about the idea that the sheep had kidnapped a human to take care of them -- but make sense from that tiny corner of the farm. There are some moments of scariness, but overall this is a gentle story that will let you see the world in a new light. Some cartoon-esque drawings scattered through the book give an extra touch of life to the narrative.
+
 ## _Castle Hangnail_, Ursula Vernon
 ![](https://images-na.ssl-images-amazon.com/images/I/51HMOJjmnUL._SX331_BO1,204,203,200_.jpg)
 
