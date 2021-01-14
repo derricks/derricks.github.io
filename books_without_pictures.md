@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Amari and the Night Brothers_, B.B. Alston
+![](https://images-na.ssl-images-amazon.com/images/I/51f5PWfVZoL._SX329_BO1,204,203,200_.jpg)
+
+When Amari gets a mysterious package on behalf of the brother she was told was dead, she finds an invitation to join the top-secret Bureau of Supernatural Investigations. She accepts so she can find out what happened to her brother, but quickly discovers that she is a Magician, a human with innate magical powers. Unfortunately, Magicians are viewed as unilaterally evil by the Bureau, so she immediately faces the same level of shunning and disparagement she faced as a Black girl in a largely white prep school.  Bureau officials allow her to try out to be an agent, and she pairs with classmate Dylan van Helsing and her were-dragon roommate to find out what happened to her brother as well as Dylan's sister Maria. If you liked the _Nevermoor_ books, you'll find a lot of similarities in this rich, fast-paced novel. My daughter tore through this and was excited to tell us all about it as she read it. You can read [my longer review at Geekdad](https://geekdad.com/2021/01/review-amari-and-the-night-brothers/). 
+
 ## _Toaff's Way_, Cynthia Voigt
 ![](https://images-na.ssl-images-amazon.com/images/I/51Pn9RILqjL._SX329_BO1,204,203,200_.jpg)
 
