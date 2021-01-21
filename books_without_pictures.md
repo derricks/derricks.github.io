@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The True Meaning of Smekday_, Adam Rex
+![](https://images-na.ssl-images-amazon.com/images/I/51JI5aukuCL._SX326_BO1,204,203,200_.jpg)
+
+It's not hard to spot similarities between this book and _Mars Evacuees_ (below). In both, aliens have come to Earth and begun to corral humans. A human and an alien become friends, and then the two races have to work together to defeat yet another group of aliens. This book makes more explicit parallels between how the aliens treat the humans and how European colonists treated Native Americans, with humans put onto reservations, policies changed at the last moment, and so on. This book is a more humorous narrative, though, with Black protagonist Gratuity Tucci befriending a Boov who goes by J. Lo and eats all manner of things we don't consider food (including sure-to-induce-giggles items such as urinal cakes). This book has a draggy middle part -- I don't understand what the Florida side trip added to the story other than a satirical look at a thinly-disguised Disneyland (Happy Mouse Kingdom) and probably 100 pages -- but is mostly enjoyable and packed with silly sci-fi. It is evidently the basis of the movie _Home_, but reading the plot summary of that movie brings the phrase "loosely based on" to mind.
+
 ## _A Tale of Highly Unusual Magic_, Lisa Papademetriou
 ![](https://images-na.ssl-images-amazon.com/images/I/61Yed9F2KnL._SX334_BO1,204,203,200_.jpg)
 
