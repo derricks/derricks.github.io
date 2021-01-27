@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The 1,000 Year Old Boy_, Ross Welford
+![](https://images-na.ssl-images-amazon.com/images/I/51B7uBL7wSL._SX331_BO1,204,203,200_.jpg)
+
+["Who waaaants to live foreveeeeer?" asks Queen.](https://www.youtube.com/watch?v=_Jtpf8N5IDE) Not Alfie. Not anymore. A thousand years before the book's time frame, Alfie used a "life pearl" that stopped him aging. He was 11 at the time. And in modern times, he still looks like an 11-year-old. But when his mom (also ageless) dies in a fire, he sets in motion a plan they established hundreds of years before: find the last life pearl they had hidden and set himself aging again. He recruits two kids in the neighborhood, and the three spend the latter third of the book tensely dodging another Neverdead who has stumbled onto Alfie and wants the life pearl for himself, archaeologists about to excavate the very site Alfie needs to visit, the modern kids' parents, and child protection services. This book dwells effectively on the ups and downs of agelessness (which is different than immortality), and offers a sobering, thoughtful look on what that life might be like.
+
 ## _The True Meaning of Smekday_, Adam Rex
 ![](https://images-na.ssl-images-amazon.com/images/I/51JI5aukuCL._SX326_BO1,204,203,200_.jpg)
 
