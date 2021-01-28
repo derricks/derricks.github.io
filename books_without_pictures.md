@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Tail of Emily Windsnap_, Liz Kessler
+![](https://m.media-amazon.com/images/I/5157P0O-rWL.jpg)
+
+This middle-grade fantasy series will definitely appeal to mermaid enthusiasts, as the titular character learns that she's half-mermaid when she plunges fully into the water for the first time in her life. Before long, she's made a mermaid BFF and started to unwind a conspiracy about her father, a neighbor, her mother's odd memory lapses, and Neptune himself. The plot moves along through coincidence after coincidence, and raises a lot of questions, but if your child likes this kind of thing, this series is sure to be a hit. (Our daughter read the first two books but then got bored by the third.)
+
 ## _The 1,000 Year Old Boy_, Ross Welford
 ![](https://images-na.ssl-images-amazon.com/images/I/51B7uBL7wSL._SX331_BO1,204,203,200_.jpg)
 
