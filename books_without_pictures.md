@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Tragical Tale of Birdie Bloom_, Temre Beltz
+![](https://images-na.ssl-images-amazon.com/images/I/51EW3Hbx0NL._SX329_BO1,204,203,200_.jpg)
+
+I really liked this fantasy book, though I'd be hard-pressed to pinpoint exactly why. Certainly the underlying themes of the power of friendship and combatting rigid definitions of who you are are good ones. And the book provides a novel take on the "imagine a world where fairly tale characters are real" genre of middle grade books. And the quippy narrator, who is in fact the book you're reading, provides amusing editorials and footnotes. In Wanderly, Caucasian (by the cover if not the text) Birdie Bloom is a Tragical. Stories in Wanderly are fiercely controlled by the Chancellor. And you are destined to live the story written for you. Not all stories are happy, of course, which is where Tragicals come in: they are destined to have unhappy endings (unlike the Triumphants, winners of happy endings and suspiciously often drawn from upper classes). So Birdie lives a bleak existence, because why invest in teaching Tragicals how to do anything other than die unhappily? But then the _deus ex machina_ of the Winds of Wanderly, a sort of omnipresent anything-is-possible magical entity, brings Birdie a letter written by a wicked witch who wants more from the book of spells than the Chancellor has allowed. A bit of initial identity confusion moves the two pen pals to form the most unlikely of friendships. The headmistress of the Home for Tragicals is like Miss Hannigan turned up to a million (minus the drunkenness), so she can be a scary character. But even she is given depth by the uplifting (and decidedly non-Tragical) end of the book, with a suppressed magical ability that brings to mind people forced to hide their homosexuality for fear of abuse.
+
 ## _The Tail of Emily Windsnap_, Liz Kessler
 ![](https://m.media-amazon.com/images/I/5157P0O-rWL.jpg)
 
