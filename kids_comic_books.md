@@ -155,6 +155,11 @@ Bera, a pumpkin farmer in the land of trolls, rescues a human baby from evil mer
 
 Willow is feeling pretty depressed about her mother's recent death, and the school bullies aren't helping. She retreats to the nearby woods, a place she visits often with her dad. She meets Pilu, a wood spirit, who has run away from her mother and sisters. Willow helps her find her way back, but on the way the girls have to deal with Willow's emotions as they come to life. The feelings are represented as green monsters trapped in bottles. Each girl teaches the other a lesson that helps her appreciate her own life. A more somber take on feelings-as-monsters than _Sketch Monsters_.
 
+### _Twins_, Varian Johnson
+![](https://images-na.ssl-images-amazon.com/images/I/518BYf44b3L._SX342_BO1,204,203,200_.jpg)
+
+Francine and Maureen are identical twins who have always hung out together and with their friends. But at the start of a new school year, Socially savvy Francine wants to carve out an identity separate from quiet and smart Maureen, while Maureen just wants things to continue on as they always have. Francine signs up for separate classes and asks her parents to put Maureen into other programs. The sororal tensions escalate when Maureen decides to run for class president against Francine. The tension is thick in this book and, while told from Maureen's point of view, gives the reader a sympathetic view of each of them.
+
 ### _Diana: Princess of the Amazons_, Shannon Hale & Dean Hale
 ![](https://m.media-amazon.com/images/I/51E3FWW3BiL.jpg)
 
