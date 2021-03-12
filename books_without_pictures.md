@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Cattywampus_, Ash Van Otterloo
+![](https://images-na.ssl-images-amazon.com/images/I/51yFy36RyBL._SX333_BO1,204,203,200_.jpg)
+
+Magic is recent history in Howler's Hollow, but not in a good way. The McGill and Hearn clans flung spells back and forth with such rancor and little regard for collateral damage that the townspeople banded together to put an end to it. Fast-forward to today, when Delpha McGill and Katybird Hearn are the last in line of their respective families. In Delpha's household, magic is strictly forbidden, but when she finds her family's spellbook, she sees it as a way to solve her mother's financial woes. Katybird, on the other hand, grew up knowing about magic, even if her family keeps it under wraps, but she's worried that her magic, which is passed from mother to daughter, will be okay, as she presents as female but was born with XY chromosomes. The two girls, who are at best acquaintances, meet up and accidentally unleash an undead army of both Hearns and McGills, who bring the full fury of the feud back with them. The girls have to work together and master their magic in order to save their town. The arc feels like it takes a beat too long to resolve, and it's unclear what the girls have to do assuage the angry townspeople once the zombies are quieted, but it's a good story overall.
+
 ## _The Tragical Tale of Birdie Bloom_, Temre Beltz
 ![](https://images-na.ssl-images-amazon.com/images/I/51EW3Hbx0NL._SX329_BO1,204,203,200_.jpg)
 
