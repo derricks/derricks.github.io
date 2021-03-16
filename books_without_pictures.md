@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Extremely Inconvenient Adventures of Bronte Mettlestone_, Jaclyn Moriarty
+![](https://images-na.ssl-images-amazon.com/images/I/61aypnuT21L._SX331_BO1,204,203,200_.jpg)
+
+We've read a lot of British imports, and this one seems more British than most, even though the author is Australian (asides in this book and the others in the series about northern areas being warmer make a lot more sense now that I know that). I can't quite tell you why; a certain quirkiness and polite air with stops for tea shouldn't, on their own, be enough to make something seem British. The book itself looks like it's going to be a series of loosely connected vignettes as Bronte Mettlestone is charged with visiting each of her aunts after her parents' deaths. But they do eventually come together in an overarching elaborate plan that sees Bronte score a major victory against the Whispering King and solve a host of small problems along the way. Moriarty's world of small kingdoms and dragons and pirates and wizards and slightly odd denizens is a lot of fun, and our daughter was eager to read more about it.
+
 ## _Cattywampus_, Ash Van Otterloo
 ![](https://images-na.ssl-images-amazon.com/images/I/51yFy36RyBL._SX333_BO1,204,203,200_.jpg)
 
