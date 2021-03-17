@@ -170,6 +170,11 @@ Yes, _that_ Diana. This is a cute, lower-middle grade entrypoint for Wonder Woma
 
 Much like _Diana: Princess of the Amazons_, _Zatanna and the House of Secrets_ tells a story of the teenage years of a DC superheroine, though this one somewhat less well known than Wonder Woman. I don't know much about Zatanna the character, but this is a fun story in which she learns that not only is her dad not simply a stage magician, but that she too is a real magician who can make things happen by saying words backwards. And her house is named The House of Secrets, full of mysterious magic. And the family's pet rabbit can talk. Big day! In this adventure, she has to stop The Witch Queen from taking over the House and rescue her dad. As with _Diana_, I'm sure there are allusions to Zatanna's more adult storylines, but you certainly don't need to know them to enjoy the story.
 
+### _Lois Lane and the Friendship Challenge_, Grace Ellis
+![](https://images-na.ssl-images-amazon.com/images/I/515L9prv8hL._SX338_BO1,204,203,200_.jpg)
+
+Think of this less as a Lois Lane story and more as a modern-day typical middle-grade story with some Lois Lane accessories. In this book, a tweenaged Lois Lane is planning a frenetic summer with her best friend, who is going away to stay-away camp for the first time. Standard middle-grade fare of jealousy of new friends, anxiety about keeping your friends, and an initial desire for external validation are the real story here, though the upfront plot is about a mysterious fireworks theft that threatens a local business. Lane is dismissive of journalists until the end, so I guess this could serve as an origin story for her, but aside from some winks here and there, there's nothing to suggest her future role in DC Comics.
+
 ### _Aquicorn Cove_, Katie O'Neill
 ![](https://m.media-amazon.com/images/I/51S2bI7XFaL.jpg)
 
