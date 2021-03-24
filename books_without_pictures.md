@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Last Last-Day-of-Summer_, Lamar Giles
+![](https://images-na.ssl-images-amazon.com/images/I/51dtEeceGoL._SX334_BO1,204,203,200_.jpg)
+
+This book is bananas. B-A-N-A-N-A-S. When we join the Legendary Alston Boys, as the townspeople call them, at the beginning of this book, they've already had a wide range of supernatural-tinged adventures across Logan County, a sort of [Sunnydale](https://en.wikipedia.org/wiki/Sunnydale)-esque locus of weird stuff. But then a mysterious being shows up with a Polaroid that freezes time when you take a picture. But then another mysterious figure zaps in to tackle him. Time is frozen across the region, and the Alston boys have to undo the damage, figure out who these people are, and work with an army of "Clock Watchers" with _Phantom Tollbooth_-level punning names. It is worth noting, given the author cofounded [We Need Diverse Books](https://diversebooks.org/), that the protagonists are Black and it is easy to assume, absent any information, that most of the other characters are as well.
+
 ## _The Extremely Inconvenient Adventures of Bronte Mettlestone_, Jaclyn Moriarty
 ![](https://images-na.ssl-images-amazon.com/images/I/61aypnuT21L._SX331_BO1,204,203,200_.jpg)
 
