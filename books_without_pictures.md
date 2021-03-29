@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Storybound_, Marissa Burt
+![](https://images-na.ssl-images-amazon.com/images/I/51l+nD9wxBL._SX333_BO1,204,203,200_.jpg)
+
+This book offers a clever twist on the middle-grade fantasy staple of meeting story characters in the flesh. In the land of Story, the citizens (called characters) live out Tales written for them, and schooling consists of learning to be a good Hero or Villain. When Una Fairchild is pulled from our world into theirs, she quickly begins to unravel a conspiracy underlying the kingdom's history. The world building took a while for me to get my head around in this book, but by the end of book one I was looking forward to book two. Adults and older readers will probably see many of the twists coming in advance, but this is an enjoyable fantasy novel with a rich cast of characters.
+
 ## _The Last Last-Day-of-Summer_, Lamar Giles
 ![](https://images-na.ssl-images-amazon.com/images/I/51dtEeceGoL._SX334_BO1,204,203,200_.jpg)
 
