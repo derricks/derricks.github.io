@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Eva Evergeen: Semi-Magical Witch_, Julie Abe
+![](https://images-na.ssl-images-amazon.com/images/I/51hY2Q3klbL._SX342_BO1,204,203,200_.jpg)
+
+"perfect for fans of _Kiki's Delivery Service_" says the blurb. Yes, I imagine so. There are many parallels and the movie, at least -- I've not read the book -- clearly influenced this story. Eva Evergreen is the daughter of the most powerful witch in the kingdom, but she herself only has "a pinch" of magic, and gets tired easily if she does more than a few spells in too short a span of time. Still, she manages to convince the Council that she should be allowed to go on her Novice quest to prove her worth, and she ends up in the seaside town of Auteri. As she settles in, she begins to find how to make the most of her small amount of magic. There's a nice subtle shift in the book where she stops saying "if I were my mother, I'd just ..." and the reader sees her piecing together how to solve problems in a way that makes sense for her without thinking about how other people would solve it. She falls in love with the town where she's landed and makes strong friendships, and her push to save her new home from a particularly violent storm will have you cheering (and, weeping, if you're as prone to it as I). I saw the last-page twist coming right away, but it sets up nicely for an action-packed sequel. 
+
 ## _Midsummer's Mayhem_, Rajani LaRocca
 ![](https://images-na.ssl-images-amazon.com/images/I/51kzKji1CEL._SX331_BO1,204,203,200_.jpg)
 
