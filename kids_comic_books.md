@@ -309,6 +309,11 @@ An enthusiastically feminist comic series starring five girls attending a summer
 
 In theory, Marigold "Goldie" Vance works as a valet at the lush Crossed Palms resort in Florida where her dad is the manager. But she _actually_ dreams of being a detective, and manages to embroil herself and her fellow hotel staff in a wide range of crime-solving activities. Goldie's got a lot of spunk, and only hesitates briefly when she needs to, for instance, "borrow" a car to help her solve a case. While Larson's cast is diverse, it doesn't necessarily reflect the 1960s Florida it's so clearly set in. An African-American acting as hotel manager? His biracial daughter from a mixed marriage? A potential queer relationship? Maybe it's actually set in a parallel universe where bigotry was nowhere to be seen. Anyway, the mysteries are solid and take a range of twists and turns along the way. The collected volumes also have back matter that shows you how a few of the pages were developed by the creators.
 
+### _The Pathfinders Society_, Francesco Sedita
+![](https://images-na.ssl-images-amazon.com/images/I/51XYc9FijHL._SX329_BO1,204,203,200_.jpg)
+
+When the five protagonists of the book set out on a summer-camp-approved treasure hunt, they soon find themselves on the trail of a much older treasure that the town's (and camp's) founder sought and failed to find. And by soon, I mean, almost immediately. This book describes some clever puzzles that combine light magic and the puzzles of a modern-day puzzle hunt, but they're hard to really appreciate as the book speeds you along through each one's solution. The five kids are racially and socially diverse and each bring unique talents to the team, but you'll barely get a chance to know each one.
+
 ### _Roller Girl_, Victoria Jamieson
 ![](https://m.media-amazon.com/images/I/515Ily7DHCL.jpg)
 
