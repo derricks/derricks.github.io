@@ -349,6 +349,11 @@ This complex adventure features mice in a medieval-style world warding off preda
 
 While animated skeletons are common enough in Rickety Stitch's land, he seems to be the only one who talks and sings. The series follows him and his best friend, The Gelatinous Goo (a blob-shaped creature that only Rickety can understand) as they seek to find out why Rickety is different. Black-and-white dream sequences give the readers the ability to infer some details, but they're still confusing and opaque. I like that this series imagines a world after big wars between good and evil and the life the normal denizens lead in the uncivilized world. And props to the production team for actually creating recordings of some of the original songs featured in the book.
 
+## _Estranged_, Ethan Aldridge
+![](https://images-na.ssl-images-amazon.com/images/I/61v+3PBBQqL._SX329_BO1,204,203,200_.jpg)
+
+Fairies swapping fairy babies for humans is a common staple of European mythology, but what happens to those kids when they grow up? _Estranged_ picks up a dozen years or so after the switch, where Edmund, a fairy in our world, struggles to keep his fairy nature hidden and his human counterpart is simply known as The Childe and is treated like a trophy at a fairy court. But when the fairy king and queen are turned into rats by the queen's sister Hawthorne, The Childe travels with his page Whick (a nonbinary wax golem with a candle wick set in their head) to find Edmund, the true prince, to defeat Hawthorne. Along the way, the two boys struggle with what family matters and what matters about family. This is a strong epic fantasy story with a large hidden world tucked under the city streets.
+
 ### _5 Worlds_ series, Mark Siegel, Alexis Siegel, lots of other people
 ![](https://images-na.ssl-images-amazon.com/images/I/51vX6w3U-LL._SX331_BO1,204,203,200_.jpg)
 
