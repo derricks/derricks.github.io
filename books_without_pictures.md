@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Little Bird_, Cynthia Voigt
+![](https://images-na.ssl-images-amazon.com/images/I/61y+-exEaZL._SX381_BO1,204,203,200_.jpg)
+
+This book about a thoughtful, determined crow is another in Cynthia Voigt's collection of books focusing on animals on a Maine farm, all of which we've really liked so far (see also, _Toaff's Way_ below; Toaff has a minor but critical role in this book). This book has all the hallmarks of the series: a protagonist who questions the things they've always been taught, characterizations of animals that make them seem human while also staying true to what you'd expect from that animal, and a rich aural description that makes the soundscape of the farm come alive. In this book, Little Bird, the smallest in a crow family, sets out to find the fisher who stole Our Luck, a talisman the crows keep that they believe wards off bad things. As Little Bird travels around the farm and beyond, she listens and learns from the animals she encounters, including the humans who tend to her when her wing is injured. Her travels make her realize how big and wonderful (and also scary) the world is, and she grows into an independent bird who's more sure of herself in the world.
+
 ## _Eva Evergeen: Semi-Magical Witch_, Julie Abe
 ![](https://images-na.ssl-images-amazon.com/images/I/51hY2Q3klbL._SX342_BO1,204,203,200_.jpg)
 
