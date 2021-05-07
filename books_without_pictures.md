@@ -4,6 +4,16 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Mystery & Mayhem_, Katherine Woodfine (editor)
+![](https://images-na.ssl-images-amazon.com/images/I/51phJ1M5JjL._SX324_BO1,204,203,200_.jpg)
+
+Our daughter became hooked on mysteries after reading the _Wells & Wong_ series (see below), and so she enjoyed this collection of short mysteries. Many involve characters in the authors' main series (though, sadly, not Robin Steven's story, which takes place in a more modern setting than Wells & Wong), so it was also a great way to find other series she might like. The authors represented here are in England or heavily-influenced-by-England countries, ranging across time periods and featuring a diverse set of boys and girls as the main crime solvers.
+
+## _The Detective's Assistant_, Kate Hannigan
+![](https://images-na.ssl-images-amazon.com/images/I/61HD3I+laGL._SX336_BO1,204,203,200_.jpg)
+
+When Nell Warne is brought to her "Aunt Kitty," the last surviving member of her family, she discovers that her aunt has made a new life as Kate Warne, the real-life first woman hired as a detective by Pinkerton's. Nell and her aunt have a tense relationship, because Kate believes that Nell's dad killed her late husband, but Nell begins to carve out a pocket in Kate's life by assisting her in detective cases (largely drawn from Warne's historic exploits). A lot of back story comes from correspondence with her friend Jemma, who went to Canada with her family to remain free after slave catchers come to their free state looking to kidnap Black people and bring them South. Hannigan writes enjoyable historical fiction, and Nell is a great character, determined and loyal.
+
 ## _Little Bird_, Cynthia Voigt
 ![](https://images-na.ssl-images-amazon.com/images/I/61y+-exEaZL._SX381_BO1,204,203,200_.jpg)
 
