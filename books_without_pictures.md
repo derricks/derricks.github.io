@@ -7,7 +7,7 @@ Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/re
 ## _Mystery & Mayhem_, Katherine Woodfine (editor)
 ![](https://images-na.ssl-images-amazon.com/images/I/51phJ1M5JjL._SX324_BO1,204,203,200_.jpg)
 
-Our daughter became hooked on mysteries after reading the _Wells & Wong_ series (see below), and so she enjoyed this collection of short mysteries. Many involve characters in the authors' main series (though, sadly, not Robin Steven's story, which takes place in a more modern setting than Wells & Wong), so it was also a great way to find other series she might like. The authors represented here are in England or heavily-influenced-by-England countries, ranging across time periods and featuring a diverse set of boys and girls as the main crime solvers.
+Our daughter became hooked on mysteries after reading the _Wells & Wong_ series (see below), and so she enjoyed this collection of short mysteries. Many involve characters in the authors' main series (though, sadly, not Robin Stevens' story, which takes place in a more modern setting than Wells & Wong), so it was also a great way to find other series she might like. The stories here are largely set in England or heavily-influenced-by-England countries, ranging across time periods and featuring a diverse set of boys and girls as the main crime solvers.
 
 ## _The Detective's Assistant_, Kate Hannigan
 ![](https://images-na.ssl-images-amazon.com/images/I/61HD3I+laGL._SX336_BO1,204,203,200_.jpg)
