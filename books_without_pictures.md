@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Angus & Sadie_, Cynthia Voigt
+![](https://images-na.ssl-images-amazon.com/images/I/51GCwg9K0qL._SX326_BO1,204,203,200_.jpg)
+
+This is the first book in Voigt's "animals on a Maine farm" books (see _Toaff's Way_ and _Little Bird_ below) and introduces series regulars Angus & Sadie, the two border collie mixes that live on the farm. It lacks the rich descriptions of background sounds on the farm, but features similar themes of finding your own way, even if -- or especially if -- it contradicts others' expectations. When Mister and Missus bring home the two border collie puppies, they expect them to be the same -- smart potential sheep herders. But while Angus, a total bro dog, excels at sheepherding, Sadie is a more sensitive soul, prone to chasing butterflies. Angus and others assume she's afraid of everything, but she learns she's not really; she just doesn't care about the same things. This book is slimmer than _Toaff's Way_ or _Little Bird_ and is a good intro to the farm, though I much prefer the later books I've read.
+
 ## _Mystery & Mayhem_, Katherine Woodfine (editor)
 ![](https://images-na.ssl-images-amazon.com/images/I/51phJ1M5JjL._SX324_BO1,204,203,200_.jpg)
 
