@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Sophie Quire and the Last Storyguard_, Jonathan Auxier
+![](https://images-na.ssl-images-amazon.com/images/I/51Pi02dFQBL._SX322_BO1,204,203,200_.jpg)
+
+This book show up often on [Mighty Girl](https://www.amightygirl.com/) lists, and it's not hard to figure out why. Sophie Quire is a smart, passionate, determined girl (Black or Brown, it seems) who finds herself at the center of a fast-paced adventure of the kind she's only read about in her beloved books. When we meet her, she's quietly trying to rescue books from a city-wide book burning. Her deft hand at book mending leads Peter Nimble to bring her a mysterious book called _The Book of Who_ (you need not have read _Peter Nimble and His Fantastic Eyes_ before this one -- enough of his back story is provided -- though I note my daughter liked it as well). _The Book of Who_, it turns out, is part of a quartet of magical books that, when combined, can bring powerful magic into the world. Sophie is tasked with finding them all and their Storyguards -- she is a Storyguard herself, _The Book of Who_ informs her -- so that she can save the world from the book's Big Bad and hopefully also find out what happened to her mother shortly after Sophie's birth. I quite liked this book for its fast-moving story, interesting world, and solid writing. I do feel like the Big Bad should have gotten more time to air his motivations -- he actually raises some good points about the consequences of powerful magic being brought to bear -- but that's a minor complaint about a thoroughly enjoyable middle-grade read.
+
 ## _Angus & Sadie_, Cynthia Voigt
 ![](https://images-na.ssl-images-amazon.com/images/I/51GCwg9K0qL._SX326_BO1,204,203,200_.jpg)
 
