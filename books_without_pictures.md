@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Amelia Six_, Kristen L. Gray
+![](https://images-na.ssl-images-amazon.com/images/I/51QX1ldYcqL._SX328_BO1,204,203,200_.jpg)
+
+Whatever trivia you currently know about Amelia Earhart, you're likely to learn more as you read this book. Millie, who is the focal point of the book, is one of six gifted girls chosen from around the country to stay at Amelia Earhart's birthplace museum (which is [a real thing](https://www.ameliaearhartmuseum.org/)). But while being feted by the museum staff, Amelia Earhart's favorite pair of goggles goes missing, and suddenly all the girls are involved in a closed circle mystery. Gray does a good job of teasing the readers about the culprit until the very end, and Millie finds friends she wouldn't have imagined before. The six girls are of various races and family situations -- Millie herself is Caucasian living with her single dad.
+
 ## _Sophie Quire and the Last Storyguard_, Jonathan Auxier
 ![](https://images-na.ssl-images-amazon.com/images/I/51Pi02dFQBL._SX322_BO1,204,203,200_.jpg)
 
