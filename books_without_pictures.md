@@ -4,6 +4,12 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Enola Holmes Mysteries_, Nancy Springer
+
+![](https://images-na.ssl-images-amazon.com/images/I/51-zvZ-OphS._SX324_BO1,204,203,200_.jpg)
+
+My daughter loves this series, which features the younger (half) sister of Sherlock and Mycroft Holmes setting up her own investigation business to track down her mom who went missing while avoiding the brothers who believe she should be in a finishing school instead. Each story offers disguises, ciphers, clever deduction, healthy dollops of railing against the sexism of the time, and detailed descriptions of women's clothing. But don't let the slim books make you think they're more like [Heidi Heckelbeck](https://www.simonandschuster.com/series/Heidi-Heckelbeck) than, well, Sherlock Holmes stories. Your child may end up asking you what "prostitute," "lady of the night," and "procuress" mean, and there's a fair amount of violence: In the first book, Enola is almost garrotted. But there's no denying that Enola is a great role model for girls: She's smart (to the surprise of her brothers), astute, and independent. And she uses her knowledge of women to figure out things that Sherlock overlooks because he doesn't bother with women's things.
+
 ## _The Amelia Six_, Kristen L. Gray
 ![](https://images-na.ssl-images-amazon.com/images/I/51QX1ldYcqL._SX328_BO1,204,203,200_.jpg)
 
