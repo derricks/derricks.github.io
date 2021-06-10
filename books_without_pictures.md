@@ -5,7 +5,7 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
 ## _Absolutely Truly_, Heather Vogel Frederick
-![](https://www.amazon.com/Absolutely-Truly-Pumpkin-Falls-Mystery/dp/1442429739)
+![](https://images-na.ssl-images-amazon.com/images/I/51PphnBg0GL._SX334_BO1,204,203,200_.jpg)
 
 The skeleton of this book is a decades-old scavenger hunt set in small-town New Hampshire, but those bones are carrying a lot of additional story. Truly Lovejoy -- a six-foot-tall seventh grader -- has just moved, with her seven-strong family, to the small town of Pumpkin Falls, where her father (and his father and so on for a hundred years or more) grew up. She moved from Austin, which was going to be the first permanent home for her military family. The family had to abandon those plans, though, when her dad loses his arm and best friend to an IED in Afghanistan. He's clearly dealing with depression, and the family is trying to help him cope. As Truly tries to adjust to this abrupt life change, she finds a note in the family's bookstore -- an on-the-rocks business now helmed by her dad and her peripatetic aunt -- that leads her and some of her new schoolmates on a quest through the town's landmarks and colorful characters. I really liked this book, with its sympathetic but realistic view of small-town life and its well-established central character and the relationships she forms. This book is the first in a trilogy, the rest of which my daughter quite liked (but I didn't get a chance to read before they went back to the library.)
 
