@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Hobbit_, J. R. R. Tolkien
+![](https://images-na.ssl-images-amazon.com/images/I/51I0DivMYcL._SX378_BO1,204,203,200_.jpg)
+
+You've probably heard of this one. But while it's understandably hard to separate from _The Lord of the Rings_, this book, unlike those books, is intended for children, and the adventure rarely bogs down as Bilbo goes from one key moment to another. It is worth pointing out that this is a big old sausage fest, with not a single girl character, though I remember reading about one dad who made Bilbo a girl when reading it aloud to his daughter. Our daughter hasn't read this yet, but I re-read it recently and thought it works pretty well as a book for modern-day kids, even those unaccustomed to the slower pace of older books. There are, of course, Peter Jackson movies of this book, but they're pretty ludicrously awful (though I liked his _Lord of the Rings_ adaptation). 
+
 ## _Silver Batal and the Water Dragon Races_, K. D. Halbrook
 ![](https://m.media-amazon.com/images/I/51MyPyJWCGL.jpg)
 
