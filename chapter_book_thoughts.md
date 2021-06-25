@@ -145,6 +145,11 @@ _Dory Fantasmagory_ series, Abby Hanlon
   * General thoughts: It is _very_ clear that Hanlon spent a lot of time around kids. Our daughter is a total Dory (aside from the reluctant reader bit). The imagination she brings to the world around her is wonderful and has an internal consistency throughout the series.
   * Social commentary: Dory and her family/friends are all Caucasian.
 
+_The Wollstonecraft Detective Agency_ series, Jordan Stratford
+  * Premise: Mary Godwin, who will grow up to be Mary Wollstonecraft Shelley, and Lady Ada Byron, who will grow up to be Ada Lovelace, pair up to solve mysteries in London.
+  * General thoughts: The author himself notes that this historical fiction is more fiction than historical -- Mary and Ada wouldn't have ever met and were years apart in age -- but these books are a good introduction to mysteries for strong readers. Ada and Mary have a Sherlock/Watson vibe, with Ada being more analytical and Mary being more aware of social and human norms. Ada is presented as the sort of magical smart that only exists in books -- in the first book she learns Turkish in a night.
+  * Social commentary: There is much discussion of what girls are allowed to do in London, and Ada is presented as being on the neurodiverse spectrum. 
+  
 _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
   * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
