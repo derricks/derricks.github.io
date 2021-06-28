@@ -324,6 +324,11 @@ This Newbery medal winner is full of all the middle-grade feelings. Feeling like
 
 This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampire Slayer for some reason. Cleopatra -- _the_ Cleopatra -- is a super-strong fighter, but relies on a group of friends to actually beat the ubiquitous Big Bad. There's a fair amount of middle grade/high school romantic feelings about, but overall this is a good romp with lots of action and political maneuvering.
 
+### _Katie the Catsitter_, Colleen AF Venable
+![](https://images-na.ssl-images-amazon.com/images/I/51rgh6+OgtL._SY344_BO1,204,203,200_.jpg)
+
+When Katie tries her hand at various summer jobs to save up money to go to camp, she eventually ends up catsitting for Ms. Lang, who lives upstairs in her building. But there's not just one or two cats to mind. There are 217, and they're ... not exactly normal. One is an expert on computer hacking. Another specializes in robotics. And so on. Katie begins to suspect that her upstairs neighbor is actually the famous supervillain the Mousetress. And then begins to realize that perhaps she's not the villain the media suggests. Along the way, Katie also has to navigate the most middle-grade of tropes: watching your friends change in ways you don't understand and shaping your own new identity. Note that this book with a strong focus on animal rights mentions (but doesn't show) dogfighting, poaching, and describes the horrible life of a NY Central Park carriage horse.
+
 ### _Diesel: Ignition_ Tyson Hesse
 ![](https://m.media-amazon.com/images/I/61lNwrMU7DL.jpg)
 
