@@ -329,6 +329,11 @@ This sprawling sci-fi Egypt-themed adventure reminds me a lot of Buffy the Vampi
 
 When Katie tries her hand at various summer jobs to save up money to go to camp, she eventually ends up catsitting for Ms. Lang, who lives upstairs in her building. But there's not just one or two cats to mind. There are 217, and they're ... not exactly normal. One is an expert on computer hacking. Another specializes in robotics. And so on. Katie begins to suspect that her upstairs neighbor is actually the famous supervillain the Mousetress. And then begins to realize that perhaps she's not the villain the media suggests. Along the way, Katie also has to navigate the most middle-grade of tropes: watching your friends change in ways you don't understand and shaping your own new identity. Note that this book with a strong focus on animal rights mentions (but doesn't show) dogfighting, poaching, and describes the horrible life of a NY Central Park carriage horse.
 
+### _Pepper Page Saves the Universe!_, Landry Q. Walker
+![](https://images-na.ssl-images-amazon.com/images/I/51qNCGl3yVL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
+
+Shy, awkward Pepper Page is obsessed with comic-book-hero Supernova, even going so far as to buy print versions of the issues, a rarity in her society of flying school buses and holographic skins. This earns her predictable scorn from everyone in her life except her two good friends. But when she tries to save a cat from a mad scientist's invention, she finds herself swept into the world of her comic book and discovers that she is, in fact, the real Supernova. (The cat, meanwhile, becomes her trainer as Master McKittens). The artwork here is both modern and a faithful reproduction of the comic-book style of the 60s and 70s, complete with the stippling and coloring you'd expect. Pepper's long recitations of comic book facts poke gentle fun -- the kind born from a deep love -- at comic book culture.
+
 ### _Diesel: Ignition_ Tyson Hesse
 ![](https://m.media-amazon.com/images/I/61lNwrMU7DL.jpg)
 
