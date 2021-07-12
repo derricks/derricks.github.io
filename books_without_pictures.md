@@ -4,11 +4,15 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Young Fredle_, Cynthia Voigt
+![](https://images-na.ssl-images-amazon.com/images/I/51donJcWh4L._SX327_BO1,204,203,200_.jpg)
+
+The second, chronologically, of Cynthia Voigt's "Farm animal" series (see _Angus and Sadie_, _Little Bird_, and _Toaff's Way_ below). In this book, Fredle, a mouse, is pushed out of the nest when he becomes sick. Rather than becoming "went," as the mice say, he is put outside by Missus and has to make his way. As he meets various animals -- helpful and not -- outside, he learns about the wide world outside a house mouse's life. As is typical of these books, his curiosity and skepticism drive a lot of his discussions with animals, and he builds a new world view derived from an experience that ends up being wider than that of any group he encounters. A friend of mine considers this his favorite of the series. Like _Angus and Sadie_, the proportion of text to pictures would probably more put this in my [chapter books list](https://derricks.github.io/chapter_book_thoughts), but it's here for consistency with the rest of the series.
+
 ## _The Triumphant Tale of Pippa North_, Temre Beltz
 ![](https://images-na.ssl-images-amazon.com/images/I/51UlPD9a3lL._SX329_BO1,204,203,200_.jpg)
 
 This book is set in the same world as _The Tragical Tale of Birdie Bloom_ (see below), but is completely non-overlapping (though there is a brief allusion to that book in a footnote in this one). However, it follows a similar format: the book itself is the narrator of an adventure that kicks off when the powerful, prescient, and seemingly whimsical Winds of Waverly deliver correspondence between two unlikely pen pals. Pippa North is chosen to be a Triumphant, the Chancellor-sanctioned roles who always have happy endings. But she'd really much rather stay at home in Ink Hollow. Meanwhile, Oliver is a would-be Magician who has yet to receive the magical hat that marks him as a full member of that society. The two begin journeys that eventually converge as they uncover a Magician plot to bounce the Triumphants -- who aren't really trained or anything because their happy endings are guaranteed -- from their home. While the hierarchy of Triumphant selection is hinted at in _Birdie Bloom_, it's made more explicit here: Certain families are effectively preselected to be Triumphants regardless of skill or temperament. As Pippa tries to return to her former life, she eventually becomes the exact kind of Triumphant Wanderly looks to while having the realization that perhaps the Chancellor's rigid roles aren't as well thought out as they really should be. This is just as enjoyable and fast-paced as _Birdie Bloom_, and I hope Beltz releases more in this universe.
-
 
 ## _The School for Good and Evil_, Soman Chainani
 ![](https://images-na.ssl-images-amazon.com/images/I/51QkuG246BL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
