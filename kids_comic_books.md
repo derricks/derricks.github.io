@@ -215,6 +215,11 @@ Look up "comics books for girls" and Zita is likely to be near the top of the li
 
 There are some intersection points with the Zita series (read that series first to get the jokes) but this is a standalone fantasy series that focuses on a Caucasian boy, his autistic sister, and a fierce Caucasian friend (girl) who lives down the street. The three plant a garden with out-of-this-world (literally) seeds that create a range of adventures.
 
+### _Donut the Destroyer_, Sarah Graley
+![](https://images-na.ssl-images-amazon.com/images/I/51hDm3jxpqL._SX331_BO1,204,203,200_.jpg)
+
+First name, Donut. Middle name, The. Last name, Destroyer. Donut is the child of famed supervillains The Destoyers, but she really just wants to be a hero. Her friend wants her to stay a villian and tries to sabotage her chances at hero school so she'll get turned out and will have to go villain school, where her friend imagines Donut being the perfect sidekick. A witty version of the reality that friendships change and personalities become more independent in middle school.
+
 ### _Chasma Knights_, Boya Sun & Kate Reed Petty
 ![](https://images-na.ssl-images-amazon.com/images/I/61Yp0e4LfSL._SX390_BO1,204,203,200_.jpg)
 
