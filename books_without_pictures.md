@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The London Eye Mystery_, Siobhan Dowd
+![](https://images-na.ssl-images-amazon.com/images/I/51-fi7tv4bL._SX338_BO1,204,203,200_.jpg)
+
+It seems simple enough. You send your cousin off on the London Eye. You watch him get into the cab. You track the cab all the way around. And then he gets out at the bottom. But what if he doesn't? That's the mystery Kate and Tom (the narratorw, who has high-functioning autism) face, as their family and Salim's mom are increasingly distraught with worry. My daughter saw the crucial clue early on, but I missed it. And even when they solve the titular mystery, there is still yet one more mystery to solve before the end. Definitely a good read for mystery fans, and the sequel is written by Robin Stevens of _Murder Most Unladylike_ (see below) fame.
+
 ## _Young Fredle_, Cynthia Voigt
 ![](https://images-na.ssl-images-amazon.com/images/I/51donJcWh4L._SX327_BO1,204,203,200_.jpg)
 
