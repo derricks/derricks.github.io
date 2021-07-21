@@ -148,8 +148,8 @@ _Dory Fantasmagory_ series, Abby Hanlon
 _The Wollstonecraft Detective Agency_ series, Jordan Stratford
   * Premise: Mary Godwin, who will grow up to be Mary Wollstonecraft Shelley, and Lady Ada Byron, who will grow up to be Ada Lovelace, pair up to solve mysteries in London.
   * General thoughts: The author himself notes that this historical fiction is more fiction than historical -- Mary and Ada wouldn't have ever met and were years apart in age -- but these books are a good introduction to mysteries for strong readers. Ada and Mary have a Sherlock/Watson vibe, with Ada being more analytical and Mary being more aware of social and human norms. Ada is presented as the sort of magical smart that only exists in books -- in the first book she learns Turkish in a night.
-  * Social commentary: There is much discussion of what girls are allowed to do in London, and Ada is presented as being on the neurodiverse spectrum. 
-  
+  * Social commentary: There is much discussion of what girls are allowed to do in London, and Ada is presented as being on the neurodiverse spectrum.
+
 _Book Uncle and Me_, Uma Krishnaswami
   * Premise: Yasmin must save neighborhood fixture Book Uncle, who runs a free lending library street cart.
   * General thoughts: This is a touching story about how kids help their community. Despite being unable to vote, they are able to organize their fellow townspeople and take political action to save someone they care about in the neighborhood.
@@ -159,6 +159,11 @@ _Book Uncle and Me_, Uma Krishnaswami
    * Premise: A boy left with a witch for the day gets involved in a magical errand to put baby dragons in their proper worlds
    * General thoughts: A child in this world getting accidentally involved in some magical quest is hardly a new idea, but this story moves along nicely and adds a lot of nice twists.
    * Social commentary: Where to start. All the characters are people of color. Everyone is struggling with money -- Jax's mother is trying to prevent them from getting evicted. One of the magical creatures is homeless and is also invisible (literally and metaphorically).
+
+ _The Silver Arrow_, Lev Grossman
+ * Premise: When Kate asks the rich uncle she's never met for a present, he delivers a magical train, and she and her brother Tom set off on a grand adventure.
+ * General thoughts: My daughter loved this book, particularly the idea that a train could have a library car and a candy car where you can eat all the candy you want without getting a stomachache. The book has a large environmental focus, but ultimately offers a message of hope against the tendency to despair: Just keep doing something, no matter how small.
+ * Social commentary: Lots of stuff about climate change -- it is a key thrust of the book. Every human seems to be Caucasian.
 
  _Make-Believe Empire: A How-To Guide_, Paul Berman
    * Premise: This nonfiction book gives advice to kids on how to use household objects to construct their own vision of the imaginary lands inside their heads
