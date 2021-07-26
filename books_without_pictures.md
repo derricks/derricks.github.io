@@ -4,6 +4,11 @@ These books have minimal illustrations. Maybe none, maybe just on chapter headin
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Last Fallen Star_, Graci Kim
+![](https://images-na.ssl-images-amazon.com/images/I/51IEUTjdPCS._SX329_BO1,204,203,200_.jpg)
+
+Another of the _Rick Riordan Presents_ books, this one focuses on Korean mythology. Riley has been adopted into one of the many magical Korean families in Southern California and longs to have magic like those around her. As she and her sister, Hattie, concoct a plan to give Riley magical powers, they learn about Riley's birth family and Hattie's life is put in grave danger. Riley, determined to save her sister, sets out on a god-given quest to find a powerful weapon the god wants to remove from our Mortalrealm. Throughout the quest, Riley finds exiled witches, learns more about herself, interacts with mythical beings and creatures, and begins to suspect many of the truths she's been told. The story takes a few twists that you might suspect coming, but Kim keeps new information coming as the story reaches its conclusion. The book clearly sets up for sequels.
+
 ## _The London Eye Mystery_, Siobhan Dowd
 ![](https://images-na.ssl-images-amazon.com/images/I/51-fi7tv4bL._SX338_BO1,204,203,200_.jpg)
 
