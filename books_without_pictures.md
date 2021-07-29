@@ -2,6 +2,8 @@
 
 These books have minimal illustrations. Maybe none, maybe just on chapter headings. Or they have a low proportion of illustrations to text. All are suitable, more or less, for kids 10 years or younger.
 
+These are only ordered by the order in which I read them (newest at top) because I assume if you're here, you're less focused on reading level and are just looking to see what's new since the last time you looked.
+
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
 ## _The Last Fallen Star_, Graci Kim
