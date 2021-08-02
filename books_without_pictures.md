@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Sisters Grimm_, Michael Buckley
+![](https://images-na.ssl-images-amazon.com/images/I/51bMCg2qTJS._SX339_BO1,204,203,200_.jpg)
+
+My daughter likes mysteries. She also likes fantasies. So a mystery series set in a fantasy universe? Solid gold. The fantasy universe is actually a small town in New York and its denizens are the middle-grade-novel-ubiquitous fairy tale characters of all the classic books and stories you've ever read or heard of. When orphans Sabrina and Daphne are reunited with a grandmother they were told was dead, older sister Sabrina is at first skeptical of the woman's claims that she and the girls are descendants of the Grimm brothers, now tasked with keeping all the "historical figures" from their stories (and those of Carroll, Baum, and the rest of the bunch) bound to a small geography where they can't do harm to the general population. This makes the Grimm family ... not exactly popular in the town. When the girls' grandmother and her associate Mr. Canis are abducted by a giant, it's up to the girls to solve the mystery of how the giant got there and rescue their newfound family. The mystery at the center takes a few twists that are gettable before the reveal. The whole series of nine books goes beyond mysteries and into a large-scale war.
+
 ## _The Last Fallen Star_, Graci Kim
 ![](https://images-na.ssl-images-amazon.com/images/I/51IEUTjdPCS._SX329_BO1,204,203,200_.jpg)
 
