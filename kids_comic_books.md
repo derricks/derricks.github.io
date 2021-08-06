@@ -230,6 +230,11 @@ This book (maybe first in a series) drops you right into a vividly colored surre
 
 What if the 1906 San Francisco earthquake were _actually_ caused by a massive war in the land of fairies, which occupies our same geography but on the other side of a mystical veil? This is the situation Latina protagonist Isabel finds herself in when she accidentally crosses the veil and sets out on a quest to rescue the Seelie Fairy Queen from a mystical prison. She's chased and aided by a host of fairies as well as a Filipino boy who survived the quake. There are lovely visual details in the rich spreads, and the back matter talks about SF's history and the artistic inspirations for the characters.
 
+### _Rapunzel's Revenge_, Shannon & Dean Hale
+![](https://images-na.ssl-images-amazon.com/images/I/51mcV5NufdL._SX344_BO1,204,203,200_.jpg)
+
+Trust Shannon Hale (_Princess in Black_, among others) and, uh, sure, her husband Dean, to make a version of Rapunzel in which the fairy-tale warhorse is given more agency and strength. In this version, Rapunzel lives in a Wild West-type world, with Mother Gothel at first keeping her in her villa with an impossibly tall wall before imprisoning her inside a tree in a swamp when she becomes a rebellious teenager. Though in this case the rebellion is all about rescuing her mom, imprisoned in Gothel's mines. When Rapunzel breaks herself out of her tower, she meets up with Jack of the beanstalk, and the quest to save Rapunzel's mom becomes a larger quest to destroy Gothel and free the land from her tyranny. Rapunzel's hair becomes whip, lasso, and more as she defeats the many outlaws in the barren land.
+
 ### _The Okay Witch_, Emma Steinkellner
 ![](https://m.media-amazon.com/images/I/51WyWzckXaL.jpg)
 
