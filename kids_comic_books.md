@@ -329,6 +329,11 @@ When the five protagonists of the book set out on a summer-camp-approved treasur
 
 This Newbery medal winner is full of all the middle-grade feelings. Feeling like you don't belong. Feeling big emotions. Feeling like your best friend is no longer your friend. Feeling nervous about middle school. Feeling the need to make an identity for yourself. And all set in a girl's burgeoning love of roller derby. My daughter was 6.5 when she read this, and I imagine some of the tween angst went over her head, but she was bouncing and cheering during the final roller derby bout all the same. The protagonist and her closest friends are all Caucasian.
 
+### _The Witch Boy_ series, Molly Knox Ostertag
+![](https://m.media-amazon.com/images/I/51b2pkXZYcL.jpg)
+
+In Aster's magical community, boys learn shapeshifting and girls learn witchcraft. Period. But Aster is a boy who wants to learn witchcraft and doesn't really want to gain his traditional shapeshifting role. As he struggles with his own desires and how they conflict with societal expectations, he meets a non-magic friend and ends up defeating a monster who has been corrupting the newly shapeshifting boys. While the story is enjoyable at the surface level, Aster's journey is also a clear parallel to queer experiences (and there are two queer relationships -- one obvious and one hinted at) that can give perspective and representation for readers.
+
 ### _Cleopatra in Space_ series, Mike Maihack
 ![](https://m.media-amazon.com/images/I/51e-7B0rIdL.jpg)
 
