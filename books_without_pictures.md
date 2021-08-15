@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Premeditated Myrtle_, Elizabeth C. Bunce
+![](https://m.media-amazon.com/images/I/51nrHYwYuxS.jpg)
+
+Start with one precocious Caucasian upper-middle-class girl obsessed with criminology. Add in her supportive, stoic, and largely unflappable mixed-race governess. Combine with suspicious shenanigans next door in Edwardian England. The result is a fun, engaging murder mystery peppered with red herrings and surprising twists (and, as my daughter notes, a good start because the murder happens right away). Myrtle is an inpsiring character, celebrated for being smart even as her widower father tries halfheartedly to teach her how a proper lady should behave. The first in what is so far a trilogy, we look forward to reading more of her adventures.
+
 ## _The Sisters Grimm_, Michael Buckley
 ![](https://images-na.ssl-images-amazon.com/images/I/51bMCg2qTJS._SX339_BO1,204,203,200_.jpg)
 
