@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Story Collector_, Kristin O'Donnell Tubb
+![](https://images-na.ssl-images-amazon.com/images/I/51hLEL2HDbL._SX324_BO1,204,203,200_.jpg)
+
+My daughter liked this story well enough, but I felt that it dragged on a bit, perhaps because I was expecting a mystery that doesn't actually start in earnest until near the end of the book. Still, it's not hard to daydream about living Viviani's life as the daughter of the live-in superintendent of the main branch of the New York Public Library. Based on a real family, this book sees Viviani struggling to impress a new girl in class by stretching her customary stories further into the lie and trickery category. Along the way, a valuable stamp collection gets stolen, and it's up to Viviani and her friends to figure out what happened.
+
 ## _Premeditated Myrtle_, Elizabeth C. Bunce
 ![](https://m.media-amazon.com/images/I/51nrHYwYuxS.jpg)
 
