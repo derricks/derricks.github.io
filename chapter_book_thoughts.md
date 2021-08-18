@@ -533,7 +533,13 @@ _The Magic Misfits_ series, Neil Patrick Harris
   * General thoughts: This is a fun series with a gang of kids acting as heroes and problem-solvers while also knowing a lot about stage magic. There are some tense parts for younger readers, but the action moves along quickly. The books have actual magic trick instructions scattered throughout.
   * Social commentary: One of the main characters is an adoptee of two gay men, another is in a wheelchair, and another is illustrated as being a person of color.
 
-  _Voyage of the Frostheart_, James Littler
+_The Nerviest Girl in the World_, Melissa Wiley
+![](https://images-na.ssl-images-amazon.com/images/I/51Gze2Yi5EL._SX331_BO1,204,203,200_.jpg)
+  * Premise: Pearl White and her brothers get recruited to do stunts in short, silent "moving pictures"
+  * General thoughts: This is an enjoyable, unusual story about a girl from a ranching family who ends up doing stunts in silent Westerns when a film crew comes to town. There's some typical middle-grade relationships, but it's mostly a fun, quick story from the dawn of the movies era.
+  * Social commentary: People of color are barely if at all represented, but Pearl is a daring, courageous girl.
+
+_Voyage of the Frostheart_, James Littler
 
   ![](https://images-na.ssl-images-amazon.com/images/I/51O4BTy0GWL._SX344_BO1,204,203,200_.jpg)
   * Premise: Ash, a Song Weaver from a remote village, sets off on a quest to find his parents, accompanied by a ragtag crew.
