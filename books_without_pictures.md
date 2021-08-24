@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Lola Benko, Treasure Hunter_, Beth McMullen
+![](https://images-na.ssl-images-amazon.com/images/I/51V9rOs0GaL._SX329_BO1,204,203,200_.jpg)
+
+Adults won't even need to get to the Acknowledgements before recognizing that this is essentially an _Indiana Jones_ movie with a middle-grade girl protagonist. Lola Benko, the Caucasian daughter of a famous archaeologist, is not convinced that he died like everyone says. Realizing she'll need money to travel to Europe and bribe people, she starts trying a life of crime, which only gets her into trouble and lands her one final shot to redeem herself at an academically rigorous San Francisco private school, thanks to a mysterious benefactor who's a tech mogul. There she teams up with, and eventually befriends, Jin, an Asian boy, and Hannah, another Caucasian girl. The three set out to find a famous treasure that they can use to get her dad back. If you liked the smart-alecky first-person narrator of McMullen's _Mrs. Smith's Spy School for Girls_ series (see below), Lola Benko will feel familiar.
+
 ## _The Story Collector_, Kristin O'Donnell Tubb
 ![](https://images-na.ssl-images-amazon.com/images/I/51hLEL2HDbL._SX324_BO1,204,203,200_.jpg)
 
