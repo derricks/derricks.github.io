@@ -240,6 +240,11 @@ Trust Shannon Hale (_Princess in Black_, among others) and, uh, sure, her husban
 
 Moth Hush is living a normal life as a put-upon middle-schooler in Founder's Bluff, MA, when she discovers that she's actually a witch. And her mom is a witch, too, who was in fact born in the late 1600s. But the witches around Founder's Bluff were chased out for spurious reasons by the ancestors of the still-prominent Kramer family, and the witches retreated to a mystical realm outside of time and space. Moth uses her mom's journal to see the past of the town and her family, despite her mom's reluctance to talk about, and especially teach, witchcraft. It's not hard to see Moth's blossoming magic as a stand-in for puberty, and it's easy to see how the Kramers have really been more about oppressing women and women of color than protecting their town. It's also easy to see a "who writes the history books" theme as Moth learns the reality of historic events. Still, the author ends on a hopeful note as the town's mayor promises to be better and Moth's mother and grandmother begin to reconcile their painful estrangement.
 
+### _The Leak_, Kate Reed Petty
+![](https://images-na.ssl-images-amazon.com/images/I/516ndx08fSL._SX342_BO1,204,203,200_.jpg)
+
+Aspriring journalist Ruth Keller, a middle-grade girl from what seems to be a mixed-race household, is excited to share news stories with the few dozen people who get her email newsletter. But when she meets a real-life journalist from the New York Times, she gets pointers on how to properly report the mysterious water pollution she's uncovered. She soon has hundreds of subscribers as she exposes companies serially violating water regulations. She makes some initial missteps, and the polluting company clearly wants to flatter her into delivering a polished message that's friendly to them, but Ruth pushes forward to deliver a true news blockbuster to her community. Very obviously inspired by the horrible water situation in Flint, Michigan, this paean to real journalism, fact-finding, and empowering your own community is a great read for would-be activists.
+
 ### _W.I.T.C.H._ series, Elisabetta Gnone
 ![](https://m.media-amazon.com/images/I/51Ml9xA-GSL.jpg)
 
@@ -332,7 +337,7 @@ This Newbery medal winner is full of all the middle-grade feelings. Feeling like
 ### _The Witch Boy_ series, Molly Knox Ostertag
 ![](https://m.media-amazon.com/images/I/51b2pkXZYcL.jpg)
 
-In Aster's magical community, boys learn shapeshifting and girls learn witchcraft. Period. But Aster is a boy who wants to learn witchcraft and doesn't really want to gain his traditional shapeshifting role. As he struggles with his own desires and how they conflict with societal expectations, he meets a non-magic friend and ends up defeating a monster who has been corrupting the newly shapeshifting boys. While the story is enjoyable at the surface level, Aster's journey is also a clear parallel to queer experiences (and there are two queer relationships -- one obvious and one hinted at) that can give perspective and representation for readers.
+In Aster's magical community, boys learn shapeshifting and girls learn witchcraft. Period. But Aster is a boy who wants to learn witchcraft and doesn't really want to gain his traditional shapeshifting role. As he struggles with his own desires and how they conflict with societal expectations, he meets a non-magic friend and ends up defeating a monster who has been corrupting the newly shapeshifting boys. While the story is enjoyable at the surface level, Aster's journey is also a clear parallel to queer experiences (and there are two queer relationships -- one obvious and one hinted at) that can give perspective and representation for readers. The series adds new characters as it goes but keeps its focus on finding your own way and the value of supportive communities.
 
 ### _Cleopatra in Space_ series, Mike Maihack
 ![](https://m.media-amazon.com/images/I/51e-7B0rIdL.jpg)
