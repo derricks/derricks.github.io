@@ -384,6 +384,11 @@ While animated skeletons are common enough in Rickety Stitch's land, he seems to
 
 Fairies swapping fairy babies for humans is a common staple of European mythology, but what happens to those kids when they grow up? _Estranged_ picks up a dozen years or so after the switch, where Edmund, a fairy in our world, struggles to keep his fairy nature hidden and his human counterpart is simply known as The Childe and is treated like a trophy at a fairy court. But when the fairy king and queen are turned into rats by the queen's sister Hawthorne, The Childe travels with his page Whick (a nonbinary wax golem with a candle wick set in their head) to find Edmund, the true prince, to defeat Hawthorne. Along the way, the two boys struggle with what family matters and what matters about family. This is a strong epic fantasy story with a large hidden world tucked under the city streets.
 
+### _Avatar: The Last Airbender_ series, various authors
+![](https://images-na.ssl-images-amazon.com/images/I/515KHg9TTaL._SX331_BO1,204,203,200_.jpg)
+
+If you, like us, enjoyed the _Avatar: The Last Airbender_ TV series, it's worth knowing that there are [a number of graphic novels](https://en.wikipedia.org/wiki/Avatar:_The_Last_Airbender_(comics)) that expand the series. The comic books, written in consultation with the show creators, largely pick up where the show left off, and add complex themes such as how to separate towns that have come to a peaceful coexistence during the Fire Lord war, bender vs. nonbenders, and more. Some standalone books feature fan favorites Katara, Toph, and Suki in independent stories.
+
 ### _5 Worlds_ series, Mark Siegel, Alexis Siegel, lots of other people
 ![](https://images-na.ssl-images-amazon.com/images/I/51vX6w3U-LL._SX331_BO1,204,203,200_.jpg)
 
