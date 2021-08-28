@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Isle of the Lost_, Melissa de la Cruz
+![](https://images-na.ssl-images-amazon.com/images/I/51OpvnGBNUL._SX324_BO1,204,203,200_.jpg)
+
+If your child has been sucked into the maw of mania for Disney's _The Descendants_, they may be happy to know these books exist. The books, of which I've only read the first, intertwine throughout the movies -- the first one is a prequel to the first movie, and the fourth is a sequel to the third. This first book discusses how the VK become friends, though it's hard to imagine Mal and Evie's friendship is as deep as it seems in the movies based on this book, where their friendship only starts towards the end, shortly before the movie's beginning. de la Cruz is a capable enough writer, but the _Descendants_ universe is clunky in many ways. Every single person has to be tied to Disney movies somehow, which makes for some awkward shoehorning. There's a bit of body shaming here and there, and the book only digs a bit deeper into the fact that the Auradon setup is a rigid caste society that's unfair to everyone except the royal class. Ben begins to realize this and make amends, which of course is what leads to the plot of the first movie.
+
 ## _Lola Benko, Treasure Hunter_, Beth McMullen
 ![](https://images-na.ssl-images-amazon.com/images/I/51V9rOs0GaL._SX329_BO1,204,203,200_.jpg)
 
