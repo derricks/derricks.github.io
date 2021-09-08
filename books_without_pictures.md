@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Winterling_, Sarah Prineas
+![](https://images-na.ssl-images-amazon.com/images/I/51wZ-x0WLAL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
+
+When Fer notices a boy being attacked by wolves and a pond reflecting a different moon than our own, she learns that she has the power to open a Way, a path between worlds. On the other side, she hopes to learn more about her parents -- her human father and her mother from this other, more magical world. She quickly meets the deceitful Mor, who almost convinces Fer to ally herself with her rule. But Fer, helped somewhat by the boy she rescued, a puck bound by oaths to the Mor, and by other members of the Mor's court, discovers that she is the rightful Lady of the land, as her mother was before her. It is up to her to defeat the Mor and take her rightful place. As the series progresses, Fer upends the traditional way things have been done and causes much consternation with the other Ladies and Lords, but always motivated by the urge to do right as she sees it. While the series uses darker Faerie mythology, it never gets too scary, and Fer is easy to root for.
+
 ## _Isle of the Lost_, Melissa de la Cruz
 ![](https://images-na.ssl-images-amazon.com/images/I/51OpvnGBNUL._SX324_BO1,204,203,200_.jpg)
 
