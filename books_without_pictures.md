@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Gilded Girl_, Alyssa Colman
+![](https://images-na.ssl-images-amazon.com/images/I/51g0gShFPnL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
+
+In the magic-infused parallel world of _The Gilded Girl_, Emma is the daughter of a wealthy "magitect" being sent to a finishing school to harness her magic properly. Though virtually everyone gets access to magic at an early age, it is a crime for anyone not wealthy enough to "kindle" their magic past their 12th birthday. Servants are expected to snuff their magic. As far as Emma has ever known, this is for the good of everyone. But when her father is presumed dead in the San Francisco Earthquake, her funds are gone and the cruel headmistress demands she work as a servant in the school where she had been a student. And she expects Emma to snuff her magic just like other servants. But Emma meets Izzy, the other servant girl, who is determined to somehow kindle her magic. And as Emma learns in her new hard-knocks life, Izzy isn't alone. The poor of the city resent the harsh laws that favor the wealthy and prevent the poor from ever rising above their station -- the best jobs all require magic. It's not hard to read allegories of our own world's privilege and classism into this book, and you'll be cheering with Emma and Izzy -- and their friends, including a house dragon that looks like a cat -- as they fight to free every magic user.
+
 ## _Winterling_, Sarah Prineas
 ![](https://images-na.ssl-images-amazon.com/images/I/51wZ-x0WLAL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
 
