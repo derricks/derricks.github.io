@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Maypop Kidnapping_, C. M. Surrisi
+![](https://images-na.ssl-images-amazon.com/images/I/51dSlC4h7fL._SX345_BO1,204,203,200_.jpg)
+
+When Quinnie Boyd's tutor doesn't show up to start her school year, Quinnie becomes increasingly convinced that something nefarious has happened, and she sets out to investigate. In many ways, this book shows how _not_ to investigate properly. Quinnie comes up with suspects on scant evidence and then works to find evidence that supports her theory. Her mom -- the small Maine town's mayor, sheriff, postal carrier, and real estate broker -- tries to steer her to looking at the facts as they are, but it's obviously hard for Quinnie to do that, and her impulses drag down portions of the book as the reader wonders what on earth she's doing. Still, her hunches do end up saving the day, freeing Ms. Stillford from a not-actually-quite-a-kidnapping and stopping some thugs. The text will really make you think there's a grow house deal gone awry, but it's a bit more, well, young-person friendly. My daughter enjoyed this and its sequel.
+
 ## _The Gilded Girl_, Alyssa Colman
 ![](https://images-na.ssl-images-amazon.com/images/I/51g0gShFPnL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
 
