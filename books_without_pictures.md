@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Ember and the Ice Dragons_, Heather Fawcett
+
+![](https://images-na.ssl-images-amazon.com/images/I/51vzIQRqS2L._SX334_BO1,204,203,200_.jpg)
+When Lionel St. George finds an orphaned, pitiful fire dragon -- a feared beast in Fawcett's alternate universe's Victorian Age -- he is moved to save it. To keep her safe, he transforms her into a human girl. All except her wings, which he renders invisible. Twelve years later, she's having trouble controlling her flame, so she journeys to her aunt in Antarctica. There she learns of the Winterglass Hunt, a hunt dedicated to killing ice dragons. Ember and her friends Nisha and Moss decide to sabotage the hunt but ultimately have to then rescue the Prince in charge of the hunt after he's kidnapped by ice dragons. Fawcett weaves a complicated world with rich characters, and my daughter and I both enjoyed this book quite a bit. Sensitive readers might balk at the descriptions of suffering dragons, but it's not too graphic, and the book ends on a hopeful note about the future of dragonkind.
+
 ## _The Maypop Kidnapping_, C. M. Surrisi
 ![](https://images-na.ssl-images-amazon.com/images/I/51dSlC4h7fL._SX345_BO1,204,203,200_.jpg)
 
