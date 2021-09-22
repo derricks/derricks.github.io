@@ -220,6 +220,11 @@ There are some intersection points with the Zita series (read that series first 
 
 First name, Donut. Middle name, The. Last name, Destroyer. Donut is the child of famed supervillains The Destoyers, but she really just wants to be a hero. Her friend wants her to stay a villian and tries to sabotage her chances at hero school so she'll get turned out and will have to go villain school, where her friend imagines Donut being the perfect sidekick. A witty version of the reality that friendships change and personalities become more independent in middle school.
 
+### _Pawcasso_, Remy Lai
+![](https://images-na.ssl-images-amazon.com/images/I/51ZFTVrK6DS._SX342_BO1,204,203,200_.jpg)
+
+When Jo sees a dog trotting to stores with a basket in hand, she follows it and doesn't get a chance to deny it when people assume she's the owner. But she enjoys being so popular thanks to the dog, and continues to lie about the dog being hers. The lies escalate -- soon a broad swath of the town is fighting a political battle on behalf of her and "her" dog -- until the inevitable discovery of the truth. Jo then has to make amends in a quick post-climax wrap-up. Older readers may see some of the twists coming, and I feel like Jo would be having more physical manifestations of her anxiety: stomachaches, nausea, etc. But this is a very enjoyable, fun read that will appeal to dog lovers of all kinds.
+
 ### _Chasma Knights_, Boya Sun & Kate Reed Petty
 ![](https://images-na.ssl-images-amazon.com/images/I/61Yp0e4LfSL._SX390_BO1,204,203,200_.jpg)
 
