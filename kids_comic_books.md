@@ -359,6 +359,11 @@ When Katie tries her hand at various summer jobs to save up money to go to camp,
 
 Shy, awkward Pepper Page is obsessed with comic-book-hero Supernova, even going so far as to buy print versions of the issues, a rarity in her society of flying school buses and holographic skins. This earns her predictable scorn from everyone in her life except her two good friends. But when she tries to save a cat from a mad scientist's invention, she finds herself swept into the world of her comic book and discovers that she is, in fact, the real Supernova. (The cat, meanwhile, becomes her trainer as Master McKittens). The artwork here is both modern and a faithful reproduction of the comic-book style of the 60s and 70s, complete with the stippling and coloring you'd expect. Pepper's long recitations of comic book facts poke gentle fun -- the kind born from a deep love -- at comic book culture.
 
+### _Snapdragon_, Kat Leyh
+![](https://images-na.ssl-images-amazon.com/images/I/51ieSUPgKyL._SX342_BO1,204,203,200_.jpg)
+
+Snapdragon, the (biracial? Black?) protagonist of the story, recovers her dog from the old woman everyone believes is a witch. But it turns out the old woman has helped the pooch and merely has an odd business of restoring animal skeletons and selling them. Oh, and also, she actually is a witch. She begins to teach Snapdragon her crafts, and eventually reveals that she was in love with Snapdragon's mother. There are plenty of queer themes here: Jacks, the old woman, is very butch. Lulu, who we first meet as Louis, is a transgender girl. And Snapdragon herself "isn't into the things girls are into." Strong character arcs and back story make this a rich narrative.
+
 ### _Diesel: Ignition_ Tyson Hesse
 ![](https://m.media-amazon.com/images/I/61lNwrMU7DL.jpg)
 
