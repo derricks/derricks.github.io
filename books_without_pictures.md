@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Ancestor Approved_, Cynthia Leitich Smith
+![](https://m.media-amazon.com/images/I/51fnSP0ysBL.jpg)
+
+All the short stories in this collection happen within the shared framework of kids at a powwow in Ann Arbor, MI. A number of different Native tribes are represented in the stories, which lightly weave together -- the most recurring theme is a dog wearing funny t-shirts (that dog is the narrator of one of the stories, as well). While my daughter enjoyed the book, I found it hard to get a strong sense of the powwow itself or to really get a sense of each of the kids. To some extent, this is a limitation of the short story medium. They are, by definition, short. 
+
 ## _Ember and the Ice Dragons_, Heather Fawcett
 
 ![](https://images-na.ssl-images-amazon.com/images/I/51vzIQRqS2L._SX334_BO1,204,203,200_.jpg)
