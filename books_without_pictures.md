@@ -9,11 +9,11 @@ Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/re
 ## _Ancestor Approved_, Cynthia Leitich Smith
 ![](https://m.media-amazon.com/images/I/51fnSP0ysBL.jpg)
 
-All the short stories in this collection happen within the shared framework of kids at a powwow in Ann Arbor, MI. A number of different Native tribes are represented in the stories, which lightly weave together -- the most recurring theme is a dog wearing funny t-shirts (that dog is the narrator of one of the stories, as well). While my daughter enjoyed the book, I found it hard to get a strong sense of the powwow itself or to really get a sense of each of the kids. To some extent, this is a limitation of the short story medium. They are, by definition, short. 
+All the short stories in this collection happen within the shared framework of kids at a powwow in Ann Arbor, MI. A number of different Native tribes are represented in the stories, which lightly weave together -- the most recurring theme is a dog wearing funny t-shirts (that dog is the narrator of one of the stories, as well). While my daughter enjoyed the book, I found it hard to get a strong sense of the powwow itself or to really get a sense of each of the kids. To some extent, this is a limitation of the short story medium. They are, by definition, short.
 
 ## _Ember and the Ice Dragons_, Heather Fawcett
-
 ![](https://images-na.ssl-images-amazon.com/images/I/51vzIQRqS2L._SX334_BO1,204,203,200_.jpg)
+
 When Lionel St. George finds an orphaned, pitiful fire dragon -- a feared beast in Fawcett's alternate universe's Victorian Age -- he is moved to save it. To keep her safe, he transforms her into a human girl. All except her wings, which he renders invisible. Twelve years later, she's having trouble controlling her flame, so she journeys to her aunt in Antarctica. There she learns of the Winterglass Hunt, a hunt dedicated to killing ice dragons. Ember and her friends Nisha and Moss decide to sabotage the hunt but ultimately have to then rescue the Prince in charge of the hunt after he's kidnapped by ice dragons. Fawcett weaves a complicated world with rich characters, and my daughter and I both enjoyed this book quite a bit. Sensitive readers might balk at the descriptions of suffering dragons, but it's not too graphic, and the book ends on a hopeful note about the future of dragonkind.
 
 ## _The Maypop Kidnapping_, C. M. Surrisi
