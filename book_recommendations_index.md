@@ -7,6 +7,8 @@ I have pages of my own descriptions for each of the below categories. Some books
   * [Books without pictures](https://derricks.github.io/books_without_pictures)
 
 
+I keep a ["greatest hits" list at SFPL](https://sfpl.bibliocommons.com/list/share/401057817_derrickschneider/1983073289_our_household_favorite_kid_books). It's not organized in any way, but they're the books that have really resonated with at least one member of our household.
+
 I also keep Goodreads shelves with ratings of many of the books I've read.
 
   * [All kids books](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=you-know-for-kids)
