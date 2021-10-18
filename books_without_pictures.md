@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Thrones and Bones_ series, Lou Anders
+![](https://m.media-amazon.com/images/I/51jCwfFHUIL.jpg)
+
+My daughter and I both really enjoyed this fun, high-fantasy nonstop adventure series. Karn, form his world's Scandinavia-esque Northern regions, is a preternatural strategist who loves board games. When he awakens an old undead king, he finds himself on the run from the king's minions. Thianna, a strong, fast half-human/half-giant girl who's had to survive the bullying of brutal giants who think she doesn't belong, has to leave her village when her human mother's old pursuers come looking for her. The two kids teamp and become fast friends in the process. The first book is mostly self-contained, with the other two books continuing their adventures that ultimately end up transforming the world's politics in significant ways. By the third book, the constant escapes begin to be a bit tiring, but Anders builds a convincing world inspired by older European cultures (as far as can be determined, everyone in the book is Caucasian) and brings the series to an epic close. The books (and the author's website) contain instructions for the games created for the books.
+
 ## _Ancestor Approved_, Cynthia Leitich Smith
 ![](https://m.media-amazon.com/images/I/51fnSP0ysBL.jpg)
 
