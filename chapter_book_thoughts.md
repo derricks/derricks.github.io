@@ -637,6 +637,13 @@ _The Story of Diva and Flea_, Mo Willems
   * General thoughts: Mo Willems is a masterful writer for this age range, of course, but this is a quieter book than his Pigeon and Elephant/Piggie series. It's hard to argue with the lovely Parisian backdrop in this book, and while the “city mouse vs. country mouse” trope is well-worn, this story still manages to entertain with its ankle-height view of the world around the two animals.
   * Social commentary: None
 
+  _Friday Barnes_ series, R. A. Spratt
+  ![](https://m.media-amazon.com/images/I/510zVsFqrPL.jpg)
+
+  * "Imagine if Sherlock Holmes was an 11-year-old girl" says the blurb. Yes. In particular, imagine if the over-the-top-with-all-the-detail-observations-and-leaps Benedict Cumberbatch Sherlock Holmes was not only an 11-year-old girl. but even more ludicrous.
+  * General thoughts: I'm generally weary of the [TVGenius](https://tvtropes.org/pmwiki/pmwiki.php/Main/TVGenius) trope in its book form. Friday is magic smart, not realistically smart, and I prefer stories where the kids are more relatable. Still, my daughter enjoys these quick reads.
+  * Social commentary: Girls aside from Friday are often labeled as ditzy and boy-crazy, Friday's friend insists that beautiful-boy Ian is mean to her because he likes her (actually, no, he actually dislikes her), broad sweeping generalizations made about all manner of people, and lots of not-very-subtle digs about how unintelligent everyone else is.
+
 _The Terrible Two_ series, Mac Barnett and John Jory
 
 ![](https://m.media-amazon.com/images/I/61-MdMENysL.jpg)
