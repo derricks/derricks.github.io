@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Mysterious Benedict Society_, Trenton Lee Stewart
+![](https://images-na.ssl-images-amazon.com/images/I/51qFW0cqN0L._SY291_BO1,204,203,200_QL40_ML2_.jpg)
+
+This is a popular series, but it didn't particularly resonate with me. Maybe I'm just tired of what a friend calls "C students imagining what A students are like" types of books, in which the intelligence on display isn't at all realistic. Mr. Benedict recruits super-intelligent orphan children via a newspaper ad to uncover the nefarious brain manipulation coming from a nearby island and led by, it turns out, his previously-unknown identical twin brother. The four children have to work together as a team to navigate increasingly implausible situations, and the end is reasonably paced enough, even if the rest of the book feels like a slow ramp up.
+
 ## _Keeper of the Lost Cities_, Shannon Messenger
 ![](https://images-na.ssl-images-amazon.com/images/I/51sPi4HAO2L._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
 
