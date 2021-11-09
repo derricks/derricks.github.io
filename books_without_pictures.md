@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Time of Green Magic_, Hilary McKay
+![](https://images-na.ssl-images-amazon.com/images/I/51QaM5H7srL._SX329_BO1,204,203,200_.jpg)
+
+In this magical realism book, Abi, Max, and Louis are trying to adjust to life in their new, blended family. When they have to find a new home, they find an empty, ivy-colored house that comes with a particular magic -- you can find yourself literally transported to a location within a book, and things within books can escape. The three kids each experience this in their own way, until they ultimately have to work together to put a prehistoric large cat back into the book it came from. The book has beautiful turns of phrase and evocative imagery that allow the surreal, dreamy atmosphere to come alive.
+
 ## _The Girl Who Stole an Elephant_, Nizrana Farook
 ![](https://images-na.ssl-images-amazon.com/images/I/51E69gdJOAL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
 
