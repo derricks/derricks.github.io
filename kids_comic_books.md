@@ -379,6 +379,11 @@ If _Lumberjanes_ isn't feminist enough for you, be sure to check out this series
 
 Gabby's family's annual stay in Wisconsin's North Woods goes a different route this year when she wonders about the large, empty house nearby. Prompted by her mom, she decides to write a mystery story about the house, and her imagination quickly takes over, especially as new North Woods visitor Paige makes the fictional story seem more and more plausible. By the time Gabby learns the truth, she is sure that the cabin's kind neighbor in fact committed a double murder years ago. He didn't. There's a lot going on in the background of this story. Paige rebels against her parents because she loathes the fact that they're defense attorneys who defend criminals. Gabby's oldest sister is applying to college, and a tense backdrop develops as Gabby's dad is made redundant at his current job. Meanwhile, the family enjoys the cabin, kayaks, and swims like any other normal camping family.
 
+### _The Secret Garden on 81st Street_, Ivy Noelle Weir
+![](https://images-na.ssl-images-amazon.com/images/I/6142TYngeXL._SX347_BO1,204,203,200_.jpg)
+
+I've never read Francis Hodgson Burnett's classic _The Secret Garden_, but from what I can tell from the Wikipedia summary, this graphic novel adaptation stays true to the plot, characters, and core messages while setting it in a more modern milieu with a racially diverse cast. Mary Lennox is an isolated kid whose parents work too much at their tech jobs and is often on her own. Her social activity is online gaming, and she gets food by calling Uber Eats. When her parents die, she's sent to live with her uncle, who lost his husband a few years back. Along the way, she meets her cousin Colin, here prone to panic attacks after his dad's death. The dead dad's garden has been left to die because it's too painful, but Mary and her new friend Dickon, and eventually Colin, work together to restore the garden and heal the sorrow in the house.
+
 ### _Mouse Guard_ series, David Petersen
 ![](https://images-na.ssl-images-amazon.com/images/I/6106OZNZzUL._SY498_BO1,204,203,200_.jpg)
 
