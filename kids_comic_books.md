@@ -399,6 +399,11 @@ While animated skeletons are common enough in Rickety Stitch's land, he seems to
 
 Fairies swapping fairy babies for humans is a common staple of European mythology, but what happens to those kids when they grow up? _Estranged_ picks up a dozen years or so after the switch, where Edmund, a fairy in our world, struggles to keep his fairy nature hidden and his human counterpart is simply known as The Childe and is treated like a trophy at a fairy court. But when the fairy king and queen are turned into rats by the queen's sister Hawthorne, The Childe travels with his page Whick (a nonbinary wax golem with a candle wick set in their head) to find Edmund, the true prince, to defeat Hawthorne. Along the way, the two boys struggle with what family matters and what matters about family. This is a strong epic fantasy story with a large hidden world tucked under the city streets.
 
+## _The Dragon Path_, Ethan Young
+![](https://images-na.ssl-images-amazon.com/images/I/51vAtuL-DcL._SX331_BO1,204,203,200_.jpg)
+
+As the Wong clan makes their way to the Old Land, the historical home they had to abandon when a monster drove them out 100 years ago, they are attacked and captured by their old foes the Dragon Tribe. Prince Sing, heir to the Wong clan's leader, escapes and finds out that the stories about the Old Land are not exactly correct. He, the "monster," and the mystic have to rescue their family and return Old Land to them. There's a lot of action and twists and turns in this book, and the end result is different than you might imagine.
+
 ### _Avatar: The Last Airbender_ series, various authors
 ![](https://images-na.ssl-images-amazon.com/images/I/515KHg9TTaL._SX331_BO1,204,203,200_.jpg)
 
