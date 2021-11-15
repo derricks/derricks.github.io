@@ -512,6 +512,13 @@ _Unusual Chickens_ series, Kelly Jones
   * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family has moved. The books are filled with actual information about poultry and poultry farming.
   * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior because she's not white. Also, the family has moved from a big city to a small town and is struggling financially.
 
+_Magical Animal Adoption Agency_ series, Kallie George
+![](https://images-na.ssl-images-amazon.com/images/I/61XF-Uv0CyL._SX338_BO1,204,203,200_.jpg)
+
+  * Premise: Caucasian protagonist Clover considers herself unlucky until she stumbles into a volunteer position at the Magical Animal Adoption Agency, where witches, wizards, and other residents of the spooky Woods and Lands Beyond come to adopt unicorns, dragons, and more.
+  * General thoughts: This is a series sure to appeal to animal lovers everywhere. The scary bits are not too scary -- a witch snatches part of a unicorn tail and a dragon claw and ties up Clover to get her blood -- but the overall theme is that Clover's view of herself as unlucky is simply a matter of perspective and focusing on the wrong things. The magical animals are totally adorable and there is much winking at fairy-tale tropes.
+  * Social commentary: None, really.
+
 _Wild Robot_ series, Peter Brown
 
 ![](https://images-na.ssl-images-amazon.com/images/I/51GkSoEePbL._SX329_BO1,204,203,200_.jpg)
