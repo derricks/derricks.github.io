@@ -14,7 +14,7 @@ In this magical realism book, Abi, Max, and Louis are trying to adjust to life i
 ## _The Girl Who Stole an Elephant_, Nizrana Farook
 ![](https://images-na.ssl-images-amazon.com/images/I/51E69gdJOAL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
 
-In this fast-paced, slim story set in maybe pre-Industrial Sri Lanka, Chaya is a practiced thief who, Robin-Hood-style, steals from the wealthy merchants to provide money for villagers in need. When her most recent heist goes wrong, her best friend gets blamed -- no one believes it would a girl who did the stealing -- and she, along with a wealthy Muslim girl, breaks him free and escapes on the titular elephant. The three do their best to elude the King's guards until they eventually fall in with the King's half-brother who's trying to claim the throne as rightfully theirs -- only to discover that the King's half-brother is actually his half-sister.
+In this fast-paced, slim story set in maybe pre-Industrial Sri Lanka, Chaya is a practiced thief who, Robin-Hood-style, steals from the wealthy merchants to provide money for villagers in need. When her most recent heist goes wrong, her best friend gets blamed -- no one believes it could be a girl who did the stealing -- and she, along with a wealthy Muslim girl, breaks him free and escapes on the titular elephant. The three do their best to elude the King's guards until they eventually fall in with the King's half-brother who's trying to claim the throne as rightfully theirs -- only to discover that the King's half-brother is actually his half-sister.
 
 ## _The Mysterious Benedict Society_, Trenton Lee Stewart
 ![](https://images-na.ssl-images-amazon.com/images/I/51qFW0cqN0L._SY291_BO1,204,203,200_QL40_ML2_.jpg)
