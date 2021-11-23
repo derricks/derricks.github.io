@@ -11,6 +11,11 @@ Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/re
 
 In this magical realism book, Abi, Max, and Louis are trying to adjust to life in their new, blended family. When they have to find a new home, they find an empty, ivy-colored house that comes with a particular magic -- you can find yourself literally transported to a location within a book, and things within books can escape. The three kids each experience this in their own way, until they ultimately have to work together to put a prehistoric large cat back into the book it came from. The book has beautiful turns of phrase and evocative imagery that allow the surreal, dreamy atmosphere to come alive.
 
+## _Daughter of the Deep_, Rick Riordan
+![](https://images-na.ssl-images-amazon.com/images/I/51kwdVrx8zL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
+
+Rick Riordan takes a break from writing about the descendants of Greek gods to write about the descendants of Captain Nemo in this complex adventure. Ana Dakkar, an Indian-American girl who is the latest descendant of Captain Nemo, is setting out on a class field trip when her school, the marine-science-focused Harding-Pencroft Academy, is destroyed by missiles fired by an offshore submarine. The field trip suddenly becomes a race to find and safeguard Captain Nemo's hidden base (from _The Mysterious Island_) and the amazing technology he developed before the Land Institute students take it by force. The book is steeped with love for Jules Verne's stories and an appreciation for the deep sea. While the book is a solid adventure that my daughter and I both liked, I was struck by the fact that Ana suffers from severe menstrual camps (and like many other women, has to still go about her daily life). This perfectly normal occurrence is so often left out of stories featuring girl characters -- I can think of more books that talk about characters relieving themselves -- even though it's a reality for girl readers in the target audience.
+
 ## _The Girl Who Stole an Elephant_, Nizrana Farook
 ![](https://images-na.ssl-images-amazon.com/images/I/51E69gdJOAL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
 
