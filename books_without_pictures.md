@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _DaVinci's Cat_, Catherine Gilbert Murdock
+![](https://images-na.ssl-images-amazon.com/images/I/61sI6KN3S0L._SX381_BO1,204,203,200_.jpg)
+
+In this time-travel adventure, Federico, heir to the Duke of Mantua and hostage of the pope in 1511 Rome, stumbled across a kitten who emerges from a precious cabinet sent to the pope as a present. The kitten disappears back into the chest, and when it emerges again, it's a full grown cat. Visitors from 1920s America and present-day come through and meet him, Raphael, and Michelangelo in a story of _Doctor Who_-esque twists and jumps in time, all centered around the cat known as Juno.
+
 ## _The Time of Green Magic_, Hilary McKay
 ![](https://images-na.ssl-images-amazon.com/images/I/51QaM5H7srL._SX329_BO1,204,203,200_.jpg)
 
