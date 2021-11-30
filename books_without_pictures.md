@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Fearless_, Mandy Gonzalez
+![](https://images-na.ssl-images-amazon.com/images/I/41DfLj6-cdL._SX329_BO1,204,203,200_.jpg)
+
+When Monica Garcia gets a call to be in a Broadway show, she discovers that she's the understudy to the understudy for one of the leads. But then she discovers that the lead has bailed and the first understudy has been injured, so she's suddenly in the lead role. But the whole cast and theater community believes that the Ethel Merman Theater is cursed. When she is mysteriously given a secret key and also words of encouragement by doormen around the community, she and the other child leads set out to break the curse. Gonzalez is herself a Broadway star, with roles such as Angelica Schuyler and Elpheba under her belt, so she gives a backstage peek at Broadway traditions, superstitions, and lore (though her interpretation of where "break a leg" comes from is listed as [popular but implausible](https://en.wikipedia.org/wiki/Break_a_leg#Other_popular_but_implausible_theories) on Wikipedia). I found the ending a bit unsatisfying: The curse seems to have a magical realism element, but then the whole mystery of solving it seems to be set up deliberately by the producer and an old owner of the theater, making one wonder if it was just a promotion campaign. But if your child likes theater, they may like this intimate look at a production.
+
 ## _DaVinci's Cat_, Catherine Gilbert Murdock
 ![](https://images-na.ssl-images-amazon.com/images/I/61sI6KN3S0L._SX381_BO1,204,203,200_.jpg)
 
