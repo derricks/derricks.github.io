@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Boggart_, Susan Cooper
+![](https://images-na.ssl-images-amazon.com/images/I/51-U6ZIiRxL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
+
+When the Volnik family learns they've inherited an old Scottish castle, the kids are super excited. But when they go to vist, they realize it's run down and agree to sell it, collecting a few of the items in the castle for themselves. Inside one of those items -- a desk with a locking top -- slumbers a mischief-making Boggart who has lived in the castle for time immemorial. Unleashed in in their home town of Toronto, he runs wild in the modern world of electricity and computers, but as the kids realize what's happening, they also begin to realize that the Boggart longs to return home to the castle he had adopted. While the cover of this book mentions how humorous it is -- and certainly my daughter laughed at the Boggart's antics -- I was more struck by the vivid descriptions of the Scottish countryside and Cooper's portrayal of the Boggart's great sorrow and longing, which continues in the sequels.
+
 ## _Fearless_, Mandy Gonzalez
 ![](https://images-na.ssl-images-amazon.com/images/I/41DfLj6-cdL._SX329_BO1,204,203,200_.jpg)
 
