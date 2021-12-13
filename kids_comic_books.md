@@ -53,6 +53,11 @@ I mean, it's called _CatStronauts_ and the primary characters are Waffles, Pom-P
 
 The conceit here is that two kids are revisiting the Dog Man (and Captain Underpants, which is also from the same real-world author) comic books they wrote as first-graders, and that's pretty much how the books read. Expect potty humor, simple jokes, and outlandish behavior. These are books that kids can talk about with each other and that adults will roll their eyes about.
 
+### _Cat Kid Comic Club_, Dav Pilkey
+![](https://images-na.ssl-images-amazon.com/images/I/51wuQxpeDoL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
+
+While Dav Pilkey's books are not for me (and this is the point; they're clearly set up for kids to read them and revel in the fact that their parents find them gross), I've always been impressed by the detailed character-drawing instructions in the back of the _Dog Man_ books. I know of a number of kids -- including my own -- who have dutifully followed every step to draw their own Dog Man or whatever. In this series, Pilkey goes even farther, turning _Dog Man_ character Cat Kid into a teacher helping a school of frogs write their own comics. The emphasis is definitely on being creative and not listening to naysayers (such as parents who don't want gross humor), while offering simple lessons that will help inspire kids to create their own works. Lots of "kid-authored" comics appear in the pages.
+
 ### _Yotsuba&!_, Kiyohiko Azuma
 ![](https://images-na.ssl-images-amazon.com/images/I/61JqkW3-qFL._SX323_BO1,204,203,200_.jpg)
 
