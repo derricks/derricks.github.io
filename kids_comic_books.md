@@ -135,6 +135,15 @@ Lots of kids love this series about a mouse going through school and having typi
 
 What happens when well-known rodent criminals get turned into school pets? Well, they go a bit soft. Their priorities change. And suddenly they're battling their equivalents from the older kids' classrooms. Goofy plots and elaborate capers make for an enjoyable, light read
 
+### _The Tea Dragon Society_, Katie O'Neill
+![](https://images-na.ssl-images-amazon.com/images/I/510f0H%2B%2BcSL._SX362_BO1,204,203,200_.jpg)
+A gentle fantasy story about Greta, who discovers the almost-lost art of raising tea dragons, small animals who grow tea leaves that impart visions when steeped. A loving gay relationship and multiracial characters make for a diverse cast, but the joy is really in the appreciation of artisanal products.
+
+### _Aquicorn Cove_, Katie O'Neill
+![](https://m.media-amazon.com/images/I/51S2bI7XFaL.jpg)
+
+This sweet and simple story features young Lana visiting her Aunt Mae at the seaside town where Lana and her family lived before her mom -- Mae's sister -- died at sea. While there, she takes care of a small not-quite-seahorse (the titular aquicorn) and learns that her aunt once met an undersea resident but ignored her pleas to take better care of the ocean, saying there wasn't anything the small village could do in the face of such destruction. By the end, the land dwellers have come around to taking care of the ocean better, even in small ways. Aunt Mae is a a muscular, dark-skinned woman (Lana is drawn as lighter-skinned, as is her mother), and some readers might read her friendship with the underwater woman as romantic, but that's only hinted at in the text.
+
 ### _Misadventures of Salem Hyde_ series, Frank Cammuso
 ![](https://images-na.ssl-images-amazon.com/images/I/51TQohdX-1L._SX360_BO1,204,203,200_.jpg)
 
@@ -179,11 +188,6 @@ Much like _Diana: Princess of the Amazons_, _Zatanna and the House of Secrets_ t
 ![](https://images-na.ssl-images-amazon.com/images/I/515L9prv8hL._SX338_BO1,204,203,200_.jpg)
 
 Think of this less as a Lois Lane story and more as a modern-day typical middle-grade story with some Lois Lane accessories. In this book, a tweenaged Lois Lane is planning a frenetic summer with her best friend, who is going away to stay-away camp for the first time. Standard middle-grade fare of jealousy of new friends, anxiety about keeping your friends, and an initial desire for external validation are the real story here, though the upfront plot is about a mysterious fireworks theft that threatens a local business. Lane is dismissive of journalists until the end, so I guess this could serve as an origin story for her, but aside from some winks here and there, there's nothing to suggest her future role in DC Comics.
-
-### _Aquicorn Cove_, Katie O'Neill
-![](https://m.media-amazon.com/images/I/51S2bI7XFaL.jpg)
-
-This sweet and simple story features young Lana visiting her Aunt Mae at the seaside town where Lana and her family lived before her mom -- Mae's sister -- died at sea. While there, she takes care of a small not-quite-seahorse (the titular aquicorn) and learns that her aunt once met an undersea resident but ignored her pleas to take better care of the ocean, saying there wasn't anything the small village could do in the face of such destruction. By the end, the land dwellers have come around to taking care of the ocean better, even in small ways. Aunt Mae is a a muscular, dark-skinned woman (Lana is drawn as lighter-skinned, as is her mother), and some readers might read her friendship with the underwater woman as romantic, but that's only hinted at in the text.
 
 ### _Bone_ series, Jeff Smith
 ![](https://m.media-amazon.com/images/I/51K2-fwKmYL.jpg)
@@ -279,10 +283,6 @@ Think science comics won't move you? This is a book that imparts a huge amount o
 ![](https://images-na.ssl-images-amazon.com/images/I/51nHgYP2LGL._SX353_BO1,204,203,200_.jpg)
 
 I don't know what about this series clicked with my daughter, but she absorbed this series eagerly. Three kids, a Caucasian girl named Gracie Hopper, an African-American boy named Eni, and an Asian-American boy named Josh use Logo to save the world. No, really. Some well-known real-world references (Seymour Papert, Flatland), but otherwise a complicated science fiction plot. Many pages in each book are devoted to stepping through increasingly complex Logo problems.
-
-### _The Tea Dragon Society_, Katie O'Neill
-![](https://images-na.ssl-images-amazon.com/images/I/510f0H%2B%2BcSL._SX362_BO1,204,203,200_.jpg)
-A gentle fantasy story about Greta, who discovers the almost-lost art of raising tea dragons, small animals who grow tea leaves that impart visions when steeped. A loving gay relationship and multiracial characters make for a diverse cast, but the joy is really in the appreciation of artisanal products.
 
 ### _Jellaby_ series, Kean Soo
 ![](https://images-na.ssl-images-amazon.com/images/I/51R08yfAatL._SX330_BO1,204,203,200_.jpg)
