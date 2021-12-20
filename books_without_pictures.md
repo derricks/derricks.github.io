@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Atlantis: The Accidental Invasion_, Gregory Mone
+![](https://m.media-amazon.com/images/I/413g+3Ctq8L._SY346_.jpg)
+
+Lewis' dad, once a famous researcher, has been laughed out of his professorship now that he believes that not only is Atlantis real but that it's responsible for the massive tsunamis that have caused everyone to flee the coasts in this near-future world of noisy hovercars and elevated sea levels. When Lewis accidentally ends up on the submarine built by his dad's assistant Hannah, the three of them find themselves in Atlantis, where they meet Kaya. Kaya has always believed the stories about the "People of the Sun," but a grim group of enforcers called Erasers make that a dangerous belief. The Erasers are determined to keep information about the surface away from the Atlantis residents. Kaya works to protect Lewis et al and return them to their home, while the Erasers are trying to prevent the exact same thing. Mone does a good job of constructing a believable Atlantean civilization, but things never feel very tense and there are odd changes in tone when this adventure is interrupted by Lewis burping or doing the chicken dance. It feels as if the editors said, "hey, add some kid humor in here somewhere," and so Mone grafted on bits of inanity. This is evidently setting up for a series, so perhaps things will get more fast-paced once the character development and world-building are out of the way.
+
 ## _The Boggart_, Susan Cooper
 ![](https://images-na.ssl-images-amazon.com/images/I/51-U6ZIiRxL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
 
