@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Merci Suarez Changes Gears_, Meg Medina
+![](https://m.media-amazon.com/images/I/51+t6Ib8vgL.jpg)
+
+In this middle-grade coming-of-age book, Medina hits all the notes you'd expect: friend groups changing, shifting interests, schools shifting from elementary-grade structure to middle-grade structure, and family conflict. But Media is a gifted writer and Latina protagonist Merci Suárez is a fleshed-out, believable, and relatable character. Merci, whose family is maybe lower middle-class, is a scholarship kid at a prestigious school, like her super-smart brother before her. She feels disconnected from her classmates, who live in fancy houses while her own family lives in a clump of houses they call _Las Casitas_, especially Edna, her grade's queen bee girl. While the two got along well enough the previous year, now they seem to be butting heads for reasons Merci doesn't really understand. On top of that, her beloved grandfather is showing more overt signs of Alzheimer's Disease. Merci makes mistakes, has successes and failures, and overall does her best to navigate a world that's stacked against her.
+
 ## _Atlantis: The Accidental Invasion_, Gregory Mone
 ![](https://m.media-amazon.com/images/I/413g+3Ctq8L._SY346_.jpg)
 
