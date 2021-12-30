@@ -526,6 +526,13 @@ _Wild Robot_ series, Peter Brown
   * General thoughts: Book one of this series starts out gently but ends in a tense cliffhanger; you'll want to race to get _The Wild Robot Escapes_ to see how it's resolved. There's a lot to enjoy here about just listening to nature and being a part of it, versus trying to subordinate it to your will. Also, the writing manages to convey deep ideas in plain prose that should be easy for most readers at this level.
   * Social commentary: The book is set in a post-climate change world, and the few humans you hear about come off much worse than the animals and the central robot. Roz is written as a girl.
 
+_Coraline_, Neil Gaiman
+
+![](https://images-na.ssl-images-amazon.com/images/I/41Et0Gz5tBL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
+  * Premise: When Coraline, a young girl bored with her life and neglected by her parents, wanders through a secret door in their house, she finds herself in a not-quite-right parallel world run by her "other mother" who wants to trap Coraline forever.
+  * General thoughts: This modern-day fairy tale mixes an imaginative creepy world and cast of characters with a girl's determination to not only escape but save others as well. Neil Gaiman is a masterful writer, and this is a great intro to his work for the younger set.
+  * Social commentary: Strong girl protagonist. Though the artwork (and the movie adaptation) paint Coraline as Caucasian, there's not really any indication of that in the book. 
+
 _Flora & Ulysses_, Kate DiCamillo
 
 ![](https://images-na.ssl-images-amazon.com/images/I/51hqBOO4paL._SX334_BO1,204,203,200_.jpg)
