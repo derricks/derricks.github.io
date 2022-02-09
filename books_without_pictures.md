@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _City Spies_ series, James Ponti
+![](https://images-na.ssl-images-amazon.com/images/I/51pfc2XDbkL._SX334_BO1,204,203,200_.jpg)
+
+See if this sounds familiar. A secretive organization (in this case MI6) has assembled unusually talented children (usually orphans not bound to pesky familial ties) from around the world to do some version of saving the world. It's a common trope in middle grade fiction (just on this page, see _Mysterious Benedict Society_, _Max Einstein_, _Nikki Tesla_ and probably some others). And while I generally now find them grating -- the children are too cartoonish in their abilities -- _City Spies_ is a great reminder that you can make the trope work with deft writing, relatable characters, and solid plotting. The City Spies are a group of kids recruited from various cities -- which then become their secret identities -- who possess skills that make them natural spies. Brooklyn, the Latina protagonist of the first book and a newcomer to the group, is a remarkable computer hacker with an intuitive sense of spycraft. Sidney is a great field operative. Kat (short for Kathmandu) is a notably neurodiverse expert at seeing patterns in the world around her. You get the idea. The kids are sent on a mission to defeat Umbra, an equally shadowy organization with the standard villainous goals of world domination and wealth. The way the kids peel apart observations around them that remind me of Sherlock Holmes or [Ffolkes](https://www.imdb.com/title/tt0081809/), and the plot builds nicely to its conclusion.
+
 ## _Merci Suarez Changes Gears_, Meg Medina
 ![](https://m.media-amazon.com/images/I/51+t6Ib8vgL.jpg)
 
