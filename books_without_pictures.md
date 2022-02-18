@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Etiquette and Espionage_, Gail Carriger
+![](https://images-na.ssl-images-amazon.com/images/I/51R9P0L5CIL._SX328_BO1,204,203,200_.jpg)
+
+To be clear, this is a YA book. However, the only items that perhaps aren't appropriate for subtween are references to "ladies of the night" and one scene of innuendo that will be blatant to adults but probably missed by most kids. It's worth reading in advance if you're concerned. Beyond that, however, this is a fun adventure set in a steampunk United Kingdom whose population includes vampires and werewolves. When Sophronia is "recruited" to go to a finishing school, her parents hope that she'll be properly trained in ladylike comportment. And while that is _part_ of the focus, the school, a large ship held aloft by giant balloons, also teaches its students how to spy, pass intelligence, and fight. All in very ladylike ways, of course. Sophronia has some strong natural talents in this regard, and her irrepresible nature causes her to learn more about the ship and school than most of her fellow students while also making allies beyond the student body. There is one character of color, and his Blackness is occasionally commented on, but he and Sophronia become certainly friends with maybe a bit more in the wings. Evidently, innuendo gets a bit stronger in later books in the _Finishing School_ series, so make sure you're prepared for questions.
+
 ## _City Spies_ series, James Ponti
 ![](https://images-na.ssl-images-amazon.com/images/I/51pfc2XDbkL._SX334_BO1,204,203,200_.jpg)
 
