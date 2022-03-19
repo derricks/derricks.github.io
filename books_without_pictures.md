@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The School Between Winter and Fairyland_, Heather Fawccett
+![](https://images-na.ssl-images-amazon.com/images/I/51bMzMiPp6S._SX329_BO1,204,203,200_.jpg)
+
+Heather Fawcett excels at interesting stories set in compelling worlds, and this book is no exception. Autumn Malog is a beastmaster at a prestigious magic school. She and her family are in charge of handling the various magical animals being kept at the school, and communicate with them using The Speech. Whenever she gets a break from her duties, however, she tries to find clues about her missing twin Winter. She knows in her heart that he's still alive; she can sense him. And then one day she sees him instead of herself as a reflection in a castle window. She makes an alliance with Cai Morrigan, the boy fated to destroy the menacing Hollow Dragon who lives in the forest that comes up to the castle. The two of them strive to figure out where Winter has gone while Cai struggles with what the prophecy means for him. The book builds to a momentous conclusion, full of a few twists and turns, as Autumn and Cai unravel the castle's secrets.
+
 ## _The Secret of Black Hollow Lane_, Julia Nobel
 ![](https://images-na.ssl-images-amazon.com/images/I/51nq4A+ElIL._SX322_BO1,204,203,200_.jpg)
 
