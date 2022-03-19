@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Secret of Black Hollow Lane_, Julia Nobel
+![](https://images-na.ssl-images-amazon.com/images/I/51nq4A+ElIL._SX322_BO1,204,203,200_.jpg)
+
+When Emmy is sent off to boarding school in Britain, she thinks it's just the most extreme of her latest boarding-school transfers as her mother -- who writes books about effective parenting -- tries to find increasingly competitive schools. But when she gets to the school, she learns that her missing dad -- who her mother refuses to talk about --  actually went there. As she asks more questions, she uncovers a sinister secret society and finds herself in the middle of a conflict between that society and those enemies working to bring it down. Each of the two books in the series has a tense showdown at the end as Emmy faces down forces that would do her harm. Nobel leaves room for a sequel, but still ties up the situation in two books.
+
 ## _Aggie Morton, Mystery Queen: The Body Under the Piano_, Marthe Jocelyn
 ![](https://images-na.ssl-images-amazon.com/images/I/51xmMatiAuL._SX333_BO1,204,203,200_.jpg)
 
