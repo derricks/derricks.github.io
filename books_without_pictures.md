@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Mystery of the Clockwork Sparrow_, Katherine Woodfine
+![](https://images-na.ssl-images-amazon.com/images/I/51YLLiRdGyL._SX323_BO1,204,203,200_.jpg)
+
+This British import -- the first in the _Sinclair's Mysteries_ series -- is a mystery but also an adventure story, as the climax draws near and tension grows. When the book starts, Sophie Taylor, born into money but now poor thanks to some bad choices by her deceased father, has taken a job at the exciting Sinclair's Department Store. When an amazing clockwork sparrow is stolen from the store's upper-floor exhibition hall before the grand opening, Sophie becomes the prime suspect. She and an ensemble cast work together to unravel the mystery, which involves one of the most notorious crime lords in London, state secrets being sold to the Germans, and a tremendous explosion. Woodfine ratches up the tension chapter by chapter until you can't put the book down.
+
 ## _Etiquette and Espionage_, Gail Carriger
 ![](https://images-na.ssl-images-amazon.com/images/I/51R9P0L5CIL._SX328_BO1,204,203,200_.jpg)
 
