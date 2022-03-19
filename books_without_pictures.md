@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Aggie Morton, Mystery Queen: The Body Under the Piano_, Marthe Jocelyn
+![](https://images-na.ssl-images-amazon.com/images/I/51xmMatiAuL._SX333_BO1,204,203,200_.jpg)
+
+I loved the writing in this mystery novel almost from the first page. In this first book in a series, Jocelyn imagines what Agatha Christie might have been like as a child. A child with an interest in crime who imagines evocative prose she might write when confronted with new situations. When Aggie is the first to find her dance teacher's sister dead under the piano, she and her new friend Hector Perot set out to figure out what's going on. Bumbling police, red herrings, sudden twists, and a tense climax make this a perfectly enjoyable mystery, and we look forward to the others.
+
 ## _The Mystery of the Clockwork Sparrow_, Katherine Woodfine
 ![](https://images-na.ssl-images-amazon.com/images/I/51YLLiRdGyL._SX323_BO1,204,203,200_.jpg)
 
