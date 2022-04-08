@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The League of Picky Eaters_, Stephanie V. W. Lucianovic
+![](https://m.media-amazon.com/images/I/51L-vMpv4iL.jpg)
+
+As I know the author of this one personally, I'll review this by summarizing the reaction from my daughter (a picky eater): lots of guffaws and "oh my gosh, this is so funny"s. As you might expect at a school named for "Saint Julia Child" and based in the town of Muffuletta, Eating is a top-level subject at Minerva's school. And Minerva isn't very good at it, at least according to the school's guidelines. Minerva is particular -- picky, even -- about her food and as a result finds herself in the lowest tier of eating classes. But while there, she learns that the other picky eaters, ostracized by the rest of the school, are better friends to her than her previous friend who's a gifted eater. This book reminds me of _Upside-Down Magic_ (see below) in that what others perceive as a fault is at least not something to blame the person for and is at most a trait with its own benefits. It certainly gives a sympathetic view of picky eaters and the attitudes they face in our own world, let alone the over-the-top food-focused world Minerva inhabits.
+
 ## _The Troubled Girls of Dragomir Academy_, Anne Ursu
 ![](https://m.media-amazon.com/images/I/51yaQUQW0HS.jpg)
 
