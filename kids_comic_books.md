@@ -204,6 +204,11 @@ Ask a dozen current, middle-ageish comics artists for inspirations, and _Bone_ i
 
 Google "graphic novels for kids" and this series is certain to show up early and often. We know at least one family who credits this popular series with getting their kid to read, and it's not hard to see why. It's an intense epic fantasy that takes place in a surreal, vividly imagined world. The Caucasian female protagonist finds a magic stone her great-grandfather left in his house, and she enters the realm where he disappeared to. His homemade robots become both servants and allies as she battles against the malicious elves and sinister forces at work among the other Stonekeepers. I particularly like that the stone isn't just default good. It shapes itself to its wielder's desires and heart, even as it tries to tempt the wielder to take -- or perhaps relinquish -- control.
 
+### _The Aquanaut_, Dan Santat
+![](https://m.media-amazon.com/images/I/51Nhgpm8K2L.jpg)
+
+Much like _Amulet_, above, this book starts with a father dying as his research ship sinks. His brother and other crewmates make it out with "their greatest work." We pick up the story a few years later, as a mysterious figure in an old diving suit emerges from the ocean. The diving suit is being driven like a vehicle by a few undersea creatures, who consider themselves to be entering space. They quickly meet Caucasian girl Sophia and recognize her as the daughter of the man whose boat they left after it sank. Hilariousness ensues as Sophia tries to help the Aquanaut pretend to be a human. There are some underlying themes about capitalism's aims versus science and conservation as well as empathizing with creatures unlike ourselves.
+
 ### _A Man and His Cat_ series, Umi Sakurai
 ![](https://m.media-amazon.com/images/I/41HAKzspV2L.jpg)
 
