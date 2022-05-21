@@ -83,6 +83,11 @@ This zany and far-reaching fantasy series features an ensemble cast, dubious mot
 
 Nico Bravo is a clerk at Vulcan's Celestial Supply Shop when Eowulf, the great-great-etc. granddaughter of Beowulf, comes in to the shop. She's determined to slay Cerberus, and Nico ends up going with her in an attempt to dissuade her. Not all monsters are bad, he tells her. The two end up romping around various mythological universes in their parallel quests. Meanwhile, the unicorn who's also a clerk finds himself on a time-traveling adventure to the future where Nico has not been successful stopping Eowulf. Lots of zaniness and silliness, but the epilogue sets up for a deeper plot.
 
+### _Mellybean_ series, Mike White
+![](https://m.media-amazon.com/images/I/51-2m9s-xZL.jpg)
+
+When Melly the dog is encouraged by his three cat hosemates to go play outside so they can lock him out, he starts digging and finds himself in an alternate world which starts with him meeting a giant monster who is, it turns out, not really a monster. This funny series will have your kids laughing at the hijinks and silliness as Melly returns to the kingdom to defeat a greedy king and a wicked wizard.
+
 ### _Once Upon a Space-Time_, Jeffrey Brown
 ![](https://images-na.ssl-images-amazon.com/images/I/51+--qZs-PL._SX329_BO1,204,203,200_.jpg)
 
