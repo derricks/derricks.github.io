@@ -204,6 +204,11 @@ Ask a dozen current, middle-ageish comics artists for inspirations, and _Bone_ i
 
 Google "graphic novels for kids" and this series is certain to show up early and often. We know at least one family who credits this popular series with getting their kid to read, and it's not hard to see why. It's an intense epic fantasy that takes place in a surreal, vividly imagined world. The Caucasian female protagonist finds a magic stone her great-grandfather left in his house, and she enters the realm where he disappeared to. His homemade robots become both servants and allies as she battles against the malicious elves and sinister forces at work among the other Stonekeepers. I particularly like that the stone isn't just default good. It shapes itself to its wielder's desires and heart, even as it tries to tempt the wielder to take -- or perhaps relinquish -- control.
 
+### _A Man and His Cat_ series, Umi Sakurai
+![](https://m.media-amazon.com/images/I/41HAKzspV2L.jpg)
+
+While this manga is probably enjoyable by younger readers, there are many hints of sadness: from the cat sitting forlornly in the pet shop waiting for a home to the man who finally buys him pining for his deceased wife. But the rest of the series is an aw-inducing story about a lonely man adopting an unwanted cat and how the two bond. Cat lovers will recognize all sorts of hilarious cat behaviors.
+
 ### _Pashmina_, Nidhi Chanani
 ![](https://m.media-amazon.com/images/I/51ZmyoRFS2L.jpg)
 
