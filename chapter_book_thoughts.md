@@ -512,6 +512,13 @@ _Unusual Chickens_ series, Kelly Jones
   * General thoughts: Unusually for a children's book, this is told in epistolary format. The story goes some unexpected places but follows Sophie as she becomes more determined to raise her great-uncle's chickens and fit in to the small town where her family has moved. The books are filled with actual information about poultry and poultry farming.
   * Social commentary: Sophie makes a number of comments about race -- her mother is Latina -- and how people treat her. They ask if she works at the farm. Her mom raises her to be more perfect because people are constantly judging her as inferior because she's not white. Also, the family has moved from a big city to a small town and is struggling financially.
 
+_Kiki's Delivery Service_, Eiko Kadono
+
+![](https://prodimage.images-bn.com/lf?set=key%5Bresolve.pixelRatio%5D,value%5B1%5D&set=key%5Bresolve.width%5D,value%5B300%5D&set=key%5Bresolve.height%5D,value%5B10000%5D&set=key%5Bresolve.imageFit%5D,value%5Bcontainerwidth%5D&set=key%5Bresolve.allowImageUpscaling%5D,value%5B0%5D&product=path%5B/pimages/9781984896698_p0_v1%5D&call=url%5Bfile:common/decodeProduct.chain%5D)
+  * Premise: If you need a synopsis, please go watch the Studio Ghibli movie, because it's endlessly endearing. But in case you're in a hurry, a young witch needs to set out from home to set up her own business in another town.
+  * General thoughts: Like me, you may be surprised to learn that the beloved classic animated movie was based on a book. The movie is definitely an adaptation; some things are radically different, some things are mildly different, and some things are the same. The text in this is simple and clear, and the pace is quiet -- quieter than the movie, even. The movie is so ingrained in my mind that I feel like I prefer it to the book, but the book is charming and cute as well.
+  * Social commentary: Girl having to make her way in the world by running her own business. There are some quiet notes about prejudice here and there.
+
 _Magical Animal Adoption Agency_ series, Kallie George
 ![](https://images-na.ssl-images-amazon.com/images/I/61XF-Uv0CyL._SX338_BO1,204,203,200_.jpg)
 
@@ -531,7 +538,7 @@ _Coraline_, Neil Gaiman
 ![](https://images-na.ssl-images-amazon.com/images/I/41Et0Gz5tBL._SY291_BO1,204,203,200_QL40_ML2_.jpg)
   * Premise: When Coraline, a young girl bored with her life and neglected by her parents, wanders through a secret door in their house, she finds herself in a not-quite-right parallel world run by her "other mother" who wants to trap Coraline forever.
   * General thoughts: This modern-day fairy tale mixes an imaginative creepy world and cast of characters with a girl's determination to not only escape but save others as well. Neil Gaiman is a masterful writer, and this is a great intro to his work for the younger set.
-  * Social commentary: Strong girl protagonist. Though the artwork (and the movie adaptation) paint Coraline as Caucasian, there's not really any indication of that in the book. 
+  * Social commentary: Strong girl protagonist. Though the artwork (and the movie adaptation) paint Coraline as Caucasian, there's not really any indication of that in the book.
 
 _Flora & Ulysses_, Kate DiCamillo
 
