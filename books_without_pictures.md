@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Ogress and the Orphans_, Kelly Barnhill
+![](https://images-na.ssl-images-amazon.com/images/I/51WVuB92aRL._SX329_BO1,204,203,200_.jpg)
+
+Kelly Barnhill (_The Girl Who Drank the Moon_, below) is an expert storyteller, and this book doesn't disappoint. The town of Stone-in-the-Glen used to be lovely. And wonderful. But then the library burned down. And the schools. And people started caring more about themselves then their town and neighbors. Even though a mysterious benefactor -- the ogress -- leaves bundles of food and other niceties on people's doors across town. But the town's mayor -- who's holding his own secrets -- convinces the town that the ogress is the cause of their woes. It's up to the orphans to convince the twonspeople otherwise. There are obvious parallels to modern American society: divisiveness vs community, flashy demagogues who hoard wealth and increase divisions in order to keep themselves in power, nostalgia for an imagined better time without asking why they were better and what could we do to get back to that, ignorance and its destructive impacts, and so on. But it's not heavy-handed at all, and can also be read as a fairy tale. Barnhill also plays around with time quite a bit in this story, such that one character, in tune with the stories of the rocks and wood around him, actually tells stories about events that happen later in the book.
+
 ## _The League of Picky Eaters_, Stephanie V. W. Lucianovic
 ![](https://m.media-amazon.com/images/I/51L-vMpv4iL.jpg)
 
