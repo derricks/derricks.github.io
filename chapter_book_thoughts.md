@@ -505,6 +505,11 @@ _The Lifters_, Dave Eggers
   * General thoughts: The plot in this is unusual, while still moving quickly, and there are some thoughtful ideas about sorrow and hope that bigger readers might catch. Short chapters and frequent illustrations make it a tractable read.
   * Social commentary: The Caucasian protagonist's family is poor, as are most people in the town, and the girl character is a person of color who wears a Ruth Bader Ginsburg t-shirt. While older readers might decide that the protagonist is attracted to her, you could also read it as just being fascinated by her in a Platonic way.
 
+_The Graveyard Book_, Neil Gaiman
+  * Premise: A living boy is raised in a graveyard of ghosts (and one vampire) after his family is killed by a mysterious stranger.
+  * General thoughts: Neil Gaiman is a modern master of fairy tales, and he brings his gifts to bear in this homage to _The Jungle Book_ (the book). More a collection of vignettes than a single story, there is nonetheless an overarching narrative arc as Nobody Owens wants to integrate into the living world and track down the mysterious stranger Jack who killed his family. Note that that initial chapter (and the book's closing) are pretty tense and might be hard for younger readers to deal with.
+  * Social commentary: None of note. There is maybe one character of color in the book, and for a time Nobody has a spunky friend who's a girl, but this is largely about a boy in England.
+  
 _Unusual Chickens_ series, Kelly Jones
 
 ![](https://images-na.ssl-images-amazon.com/images/I/51vnBUpCzkL._SX336_BO1,204,203,200_.jpg)
