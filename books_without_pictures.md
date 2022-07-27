@@ -6,10 +6,10 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
-## _Cinder_, Marissa Meyer
+## _The Lunar Chronicles_, Marissa Meyer
 ![](https://images-na.ssl-images-amazon.com/images/I/41X9MoYHzxL._SX329_BO1,204,203,200_.jpg)
 
-This book is marketed for YA audiences, but it should be fine for most younger readers -- there are romantic feelings aplenty, and some bits of innuendo here and there, but the most mature parts are one character briefly speculating if another character has been seen nude and the use of the word "promiscuity." (Note that _Scarlet_, book 2, pushes this envelope farther, not only with more scary intensity but with more innuendo and a character who likes pictures of naked women. And book 3 has a subplot involving "escort droids.") This is the first in a 4-book series (plus short story collections and graphic novels) that uses fairy tales as the loose skeleton around which an epic science fiction saga is told. Cinder is a cyborg who chafes under the harsh rules her stepmother imposes. But she's also a brilliant mechanic, and one day the prince of the commonwealth stops by her stall to get his android replaced. That sets off a spiral of events that find Cinder learning more about her own origins, the prince, the plague that's rampaging her country, and the tense politics between Earth and Luna. Even though some of the twists were broadcast well in advance, I found this to be a fast-paced, intense book that I had a hard time putting down, and I eagerly put the next one on hold.
+I found this fast-moving, engaging series on a list of "YA books for tweens who are strong readers," and I really think that "tween" is probably the better lower end of this in terms of content. Though there's no explicit sex, there's a lot of innuendo that progresses with the series. The first book, _Cinder_, is deceptively light on "things that may prompt awkward questions." And the series develops more intense violence as it progresses. All that said, this is a very enjoyable sci-fi series with cyborgs, interplanetary politics, lost royalty, pandemics, and more. Each book is loosely based on a single fairy tale -- _Cinder_ is inspired by Cinderella -- but the whole series is an epic, page-turning tale.
 
 ## _The Last Windwitch_, Jennifer Adam
 ![](https://m.media-amazon.com/images/I/518vGgQfVkL.jpg)
