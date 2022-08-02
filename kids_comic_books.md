@@ -444,6 +444,11 @@ Each volume in this series is packed with lots of good information. Most have a 
 
 Parents note: This is definitely better for older kids; there's some borderline explicit content. Aside from that, this is a typically warm and sympathetic Jamieson book focused on Imogene, who was homeschooled until middle grade and whose parents work at the local Renaissance Faire. She tries to navigate middle school's many challenges, framing them in the context of a Middle Age story of knights and dragons and getting advice from her "Faire-mily." The middle grade tropes are in full force: befriending the popular girl and learning she's actually horrible, odd thoughts about boys, insecurity about her clothes and house, and finding a true friend after doing something mean to her as prompted by the queen bee mean girl. Meanwhile, you'll get some behind-the-scenes views of Ren Faires and how they work.
 
+### _Star Wars: Princess Leia_, Mark Waid
+![](https://images-na.ssl-images-amazon.com/images/I/51RE3rCjeYL._SX320_BO1,204,203,200_.jpg)
+
+Similar to the _Darth Vader_ comic (see below), this 5-issue arc (collected into an omnibus volume) focuses on Princess Leia's activities immediately after _A New Hope_ -- the book starts with the award ceremony. Here we see Leia trying to gather up and find a home for the Alderaanians who were not on the planet when it exploded. While not as epic as the _Darth Vader_ series, it does give some insight into what's going on in Leia's head as she processes Alderaan's destruction and sets the stage for her transition from Princess to General.
+
 ### _Star Wars: Darth Vader_, Kieron Gillen
 ![](https://images-na.ssl-images-amazon.com/images/I/515mcEtXpdL._SX328_BO1,204,203,200_.jpg)
 
