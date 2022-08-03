@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Lock-Eater_, Zack Loran Clark
+![](https://images-na.ssl-images-amazon.com/images/I/51sLGu4XwPL._SX317_BO1,204,203,200_.jpg)
+
+Melanie Gate, an orphan, has always had the ability to open locks. Any lock. She just asks it to open and it does. One night a "gearling," the mechanical servants of the thaumaturgy that is one branch of the empire she lives in, shows up at the orphanage and asks Melanie to accompany him. Thus begins an adventure wherein Melanie pretends to be a famous magician, runs from cruel archmages, and eventually finds herself facing the terrifying Hexe of the South, who's been engaged in a war with the empire's wizards. But Melanie finds out that the easy truths she's always believed -- including the ones about herself -- are not the full story, and the gearling is unusual in its own way. This solid adventure will immerse you in its world and leave you hoping there are more books to come.
+
 ## _The Lunar Chronicles_, Marissa Meyer
 ![](https://images-na.ssl-images-amazon.com/images/I/41X9MoYHzxL._SX329_BO1,204,203,200_.jpg)
 
