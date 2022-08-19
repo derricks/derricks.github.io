@@ -454,6 +454,11 @@ Similar to the _Darth Vader_ comic (see below), this 5-issue arc (collected into
 
 At the end of _A New Hope_, Darth Vader, working under Grand Moff Tarkin, has made a mistake that cost the Empire its Death Star. But by the beginning of _The Empire Strikes Back_, he's in command of a fleet, reporting directly to the Emperor, and has learned that the Emperor lied to him; he has a son. What happened in the few years between the two stories? That's the tale that Gillen chooses to tell in this very well regarded, multivolume comic book. Vader has to deal with the Emperor's machinations, Imperial politics, and his own investigations into the mysterious pilot who blew up the Death Star. While there are humerous parts, this is definitely a book for older readers -- one of the story's droids is a callous killing machine and the other revels in torture, though it usually happens off-screen. Our library keeps it in the teen section.
 
+### _Star Wars: Doctor Aphra_, Kieron Gillen
+![](https://images-na.ssl-images-amazon.com/images/I/51mue8RFhqL._SX324_BO1,204,203,200_.jpg)
+
+When you finish the _Darth Vader_ series above, find out what happens to that comic's Indiana-Jones-meets-a-more-mercenary-Han-Solo archaeologist as she keeps a low profile and seeks to repay various debts she's accrued in her questionable past. Aphra became a fan favorite during _Darth Vader_, and this series continues through seven omnibus editions.
+
 ### _The Daughters of Ys_, M.T. Anderson
 ![](https://images-na.ssl-images-amazon.com/images/I/51oirxCDSTL._SX357_BO1,204,203,200_.jpg)
 
