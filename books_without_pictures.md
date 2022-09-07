@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Flavia de Luce: The Sweetness at the Bottom of the Pie_, Alan Bradley
+![](https://m.media-amazon.com/images/I/41c-0phkznL.jpg)
+
+While this mystery series is marketed to adults -- with vocabulary and allusions to match -- the protagonist is a chemistry-loving 11-year-old and the first book, at least, doesn't have any sex or serious swearing. There are, however, some very intense parts around the end of the book that might be too scary for young readers. As a mystery, this first book is solid fare, with a mysterious man dying in the garden of the ramshackle de Luce estate and Flavia's father seeming to be the obvious suspect. Flavia puts her determination and science knowledge to work to solve the mystery. There's a big exposition blob in the middle that drags on a bit, but overall this is an enjoyable start to a series
+
 ## _The Lock-Eater_, Zack Loran Clark
 ![](https://images-na.ssl-images-amazon.com/images/I/51sLGu4XwPL._SX317_BO1,204,203,200_.jpg)
 
