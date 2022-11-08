@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Fablehaven_ series, Brandon Mull
+![](https://m.media-amazon.com/images/I/51o792WLdJL.jpg)
+
+When Kendra and Seth Sorenson visit their reclusive grandparents, they learn that the remote property is actually a preserve for magical creatures and that they are the latest in a long line of keepers of these preserves. Thus begins a thrilling five-book series in which the two are at the center of an increasingly desperate race to stop another secret society from opening the demon prison Zzyzx. A friend recommended it to me because of its world-building, and it's easy to see why. Even over the course of five hefty books, as Mull keeps adding more and more detail to the world and imagining increasingly fantastic environments, the books hold together very well. And there are plot twists aplenty that will have you second-guessing just about everyone even at the end. That said, it took me a while to find Seth or Kendra likeable. Seth's impulse control issues cause most of the issues in book 1, and it's something he struggles with to the very end. Kendra, despite being very courageous by the end of the series, starts as largely a milquetoast who is given superpowers that begin to feel Sophie Foster-esque (see _Keeper of the Lost Cities_, below). There's also a fair amount of sexism sent her way, some overt, but some just in the way that everyone works to defend her instead of helping her get the skills to defend herself. Still, by the end of the series, I was eagerly waiting to see how the whole adventure would turn out. But I don't know if I'll read the follow-on _Dragonwatch_ series.
+
 ## _Flavia de Luce: The Sweetness at the Bottom of the Pie_, Alan Bradley
 ![](https://m.media-amazon.com/images/I/41c-0phkznL.jpg)
 
