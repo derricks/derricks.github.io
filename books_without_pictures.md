@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Little Women_, Louisa May Alcott
+![](https://m.media-amazon.com/images/I/61O+dMkKUOL._SX355_BO1,204,203,200_.jpg)
+
+This American classic, written in the late 1860's, tells the story of the four March sisters -- Meg, Jo, Beth, and Amy -- and their growth from girls to wonen. While it can work for younger readers -- we did it as a read-aloud when our daughter was nine -- there are a lot of idioms and unusual vocabulary that might be hard enough for adult readers. There were certainly plenty of words and allusions I didn't know. But aside from a whole heap of moralizing and mid-1800's views on the differences between men and women, the content is totally age-appropriate for just about everyone. However, if your reader is more sensitive, do remember that Beth dies near the book's end and is very sick somewhere in the middle. That may be harder for the grownups than the kids, though.
+
 ## _Fablehaven_ series, Brandon Mull
 ![](https://m.media-amazon.com/images/I/51o792WLdJL.jpg)
 
