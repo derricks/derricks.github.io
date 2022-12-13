@@ -6,10 +6,15 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Evolution of Calpurnia Tate_, Jacqueline Kelly
+![](https://m.media-amazon.com/images/I/51ZarpM+rLS._SX340_BO1,204,203,200_.jpg)
+
+Set in 1899 Texas, this book is a rich, evocative story detailing the life of Calpurnia Tate, the sole girl in a family of boys. While her mother has strong opinions about what girls should and should not be doing, her cantankerous grandfather is simply pleased that someone in the family is interested in his amateur-scientist investigations. Calpurnia ia a fleshed-out character and her brothers are a wide range of types. I loved this book when I first read it, as did my daughter who read it (and its sequel) recently. There is some light mention of house slaves versus field slaves, and their domestic servant is a quadroon, which might warrant some explanation.
+
 ## _Little Women_, Louisa May Alcott
 ![](https://m.media-amazon.com/images/I/61O+dMkKUOL._SX355_BO1,204,203,200_.jpg)
 
-This American classic, written in the late 1860's, tells the story of the four March sisters -- Meg, Jo, Beth, and Amy -- and their growth from girls to wonen. While it can work for younger readers -- we did it as a read-aloud when our daughter was nine -- there are a lot of idioms and unusual vocabulary that might be hard enough for adult readers. There were certainly plenty of words and allusions I didn't know. But aside from a whole heap of moralizing and mid-1800's views on the differences between men and women, the content is totally age-appropriate for just about everyone. However, if your reader is more sensitive, do remember that Beth dies near the book's end and is very sick somewhere in the middle. That may be harder for the grownups than the kids, though.
+This American classic, written in the late 1860's, tells the story of the four March sisters -- Meg, Jo, Beth, and Amy -- and their growth from girls to wonen. While it can work for younger readers -- we did it as a read-aloud when our daughter was nine -- there are a lot of idioms and unusual vocabulary that might be hard enough for adult readers. There were certainly plenty of words and allusions I didn't know. But aside from a whole heap of moralizing and mid-1800's views on the differences between men and women, the content is totally age-appropriate for just about everyone. However, if your reader is more sensitive, do remember that Beth dies near the book's end and is very sick somewhere in the middle. That may be harder for the grownups than the kids, though. Jo is always everyone's favorite, and is a great literary heroine determined to make her way through a world she doesn't quite fit into by the strength of her own will and talents.
 
 ## _Fablehaven_ series, Brandon Mull
 ![](https://m.media-amazon.com/images/I/51o792WLdJL.jpg)
