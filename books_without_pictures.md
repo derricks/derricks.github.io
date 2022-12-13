@@ -9,7 +9,7 @@ Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/re
 ## _The Evolution of Calpurnia Tate_, Jacqueline Kelly
 ![](https://m.media-amazon.com/images/I/51ZarpM+rLS._SX340_BO1,204,203,200_.jpg)
 
-Set in 1899 Texas, this book is a rich, evocative story detailing the life of Calpurnia Tate, the sole girl in a family of boys. While her mother has strong opinions about what girls should and should not be doing, her cantankerous grandfather is simply pleased that someone in the family is interested in his amateur-scientist investigations. Calpurnia ia a fleshed-out character and her brothers are a wide range of types. I loved this book when I first read it, as did my daughter who read it (and its sequel) recently. There is some light mention of house slaves versus field slaves, and their domestic servant is a quadroon, which might warrant some explanation.
+Set in 1899 Texas, this book is a rich, evocative story detailing the life of Calpurnia Tate, the sole girl in a family of boys. While her mother has strong opinions about what girls should and should not be doing, her cantankerous grandfather is simply pleased that someone in the family is interested in his amateur-scientist investigations. Calpurnia is a fleshed-out character and her brothers are a wide range of types. I loved this book when I first read it, as did my daughter who read it (and its sequel) recently. There is some light mention of house slaves versus field slaves, and their domestic servant is a quadroon, which might warrant some explanation.
 
 ## _Little Women_, Louisa May Alcott
 ![](https://m.media-amazon.com/images/I/61O+dMkKUOL._SX355_BO1,204,203,200_.jpg)
