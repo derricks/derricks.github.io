@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _His Dark Materials_ seires, Philip Pullman
+![](https://m.media-amazon.com/images/W/WEBP_402378-T1/images/I/51NH3umDslL._SX334_BO1,204,203,200_.jpg)
+
+This classic series is perhaps best known for its first book, _The Golden Compass_, in which tweenage Lyra Bellacqua sets off with her daemon -- an analog to a person's soul that takes the shape of a talking animal -- on an adventure to rescue her friend Roger in a parallel world to our own as she becomes a teenager and discovers love. But the trilogy touches heavily on authoritarianism, represented by the all-powerful Magisterium, a fanatically religious organization. If you're religious, note that another theme is Lord Asriel's attempt to give humans free will to take down The Authority, an angel who has set himself up as something like God. So ... religion doesn't come off super well in this book. It's not openly mocked, but the main battle is about destroying the destructive effects of religion across a wide range of worlds, including our own. The first book doesn't really dig too deep into that, though, and is the easiest read. By the time Asriel launches his war against the angels in book three, it becomes a bit heavy on theology -- my daughter loved the first two books but didn't make it through the third. Adult readers may find the ending anticlimactic. Note that there is [a meh movie adaptation of the first book](https://www.imdb.com/title/tt0385752/) and [an excellent HBO adaptation of all three books](https://www.hbo.com/his-dark-materials).
+
 ## _The Evolution of Calpurnia Tate_, Jacqueline Kelly
 ![](https://m.media-amazon.com/images/I/51ZarpM+rLS._SX340_BO1,204,203,200_.jpg)
 
