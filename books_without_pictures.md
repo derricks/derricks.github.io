@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Arc of a Scythe Series_, Neal Shusterman
+![](https://m.media-amazon.com/images/I/513DK4WQymL._SX329_BO1,204,203,200_.jpg)
+
+This is a YA series but, aside from some innuendo and the occasional phrase such as "better than sex," the main YA aspect is violent -- though not usually gory or graphic -- deaths. Which is surprising, given that the series takes place in a distant future where people are immortal thanks to healing nanites in the bloodstream and a near-omniscient AI ruler -- so much so that "splatting," or jumping off of buildings to get "deadish," is a widespread subculture. But to combat population growth, the AI entity known as the Thunderhead created a revered order known as the scythes who are placed outside the law and tasked with doling out permanent death to the people on the planet. When Citra and Rowan become apprentice scythes, they discover a group sharply divided about the policies that constrain them, with a "new order" that embraces the world's worship and kills for the pleasure of it pitted against the old order that respects the traditions and treats killing as a devout practice. The two are put into a political landscape that pits them against each other even as they develop feelings for each other. The first two books keep tension on a razor edge that keeps you reading, while the third book drags a bit as it spends its time getting all the characters in position for an anticlimactic ending. Nonetheless, my daughter loved this series and couldn't put it down. The more mature reader may find a lot to mull as the book explores religion, what death gives to humanity, whether a life that's comfortable is satisfying, and more. And while the villain is clearly a villain, he also makes the occasional good point as the best villains do.
+
 ## _Treasure Island_, Robert Louis Stevenson
 ![](https://m.media-amazon.com/images/I/41sYcgmwmpL._SX348_BO1,204,203,200_.jpg)
 
