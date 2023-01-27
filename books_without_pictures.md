@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _Treasure Island_, Robert Louis Stevenson
+![](https://m.media-amazon.com/images/I/41sYcgmwmpL._SX348_BO1,204,203,200_.jpg)
+
+If your child is into pirates, this classic novel should be a no-brainer. Much of the lore we associate with pirates -- treasure maps, deserted isles, talking parrots, and, indirectly, [how they talk](https://www.smithsonianmag.com/smart-news/film-version-treasure-island-gave-us-our-image-pirates-180967149/) -- come from this book. But even for mild pirate enthusiasts, this is a great adventure story in which a teenage boy named Jim Hawkins finds himself in possession of a treasure map and on the run from murderous pirates eager to get their hands on Captain Flint's famous gold stash. There are fight scenes, betrayals, treasure, and seafaring aplenty. For such an old book, there's not a lot of offensive ground -- there is reference to Long John Silver's Negress wife and Jim's mom is the only woman in the actual book.
+
 ## _His Dark Materials_ series, Philip Pullman
 ![](https://m.media-amazon.com/images/W/WEBP_402378-T1/images/I/51NH3umDslL._SX334_BO1,204,203,200_.jpg)
 
