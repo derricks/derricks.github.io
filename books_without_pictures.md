@@ -6,6 +6,11 @@ These are only ordered by the order in which I read them (newest at top) because
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
 
+## _The Ministry of Unladylike Activity_, Robin Stevens
+![](https://m.media-amazon.com/images/I/51S2iLHUmnL.jpg)
+
+How lovely to be back in Robin Stevens' universe of great middle-grade characters solving meaty problems (see _Murder is Bad Manners_ below). She was clearly passing the baton to Hazel Wong's sister May by the end of the previous series, but May is just one of a trio of protagonists in this new mystery set in World War II England. When May figures out her big sister Hazel is going to a secret meeting for something called The Ministry of Unladylike Activity, she bluffs her way to the door, where she meets Eric, and the two take the initiative to track down a spy selling secrets from a remote house in England. There they meet Nuala, a girl their age who is the dreamy counterpoint to May's bullheadedness, while Eric sits as the practical middle character. All three are outsiders in their way -- May is Chinese, Eric is a German expatriate, and Nuala is Irish-English in Britain -- and each brings skills to the table to solve the two mysteries that happen in the book. Characters from the previos series will have cameos in this series (Daiy Wells is just ... so ... Daisy Wells, even as a minor role), but this first book sets the stage for the newcomers to shine.
+
 ## _Arc of a Scythe Series_, Neal Shusterman
 ![](https://m.media-amazon.com/images/I/513DK4WQymL._SX329_BO1,204,203,200_.jpg)
 
