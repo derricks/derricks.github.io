@@ -16,7 +16,7 @@ my journey.
 
 ## _Chambers_
 The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://chambers.co.uk)_ is the primary reference." This is not just a nod to a popular British dictionary; this
-is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version, but the app is invaluable for its ability to do wild-card searches and anagrams.
+is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version and the app, but the app is invaluable for its ability to do wild-card searches and anagrams.
 (Do you think that's cheating? You do you, but you will find the vocabulary in Magpie intense.) The American attitude to cryptic crossword entries is that entries should be relatively
 familiar and defensible across a few dictionaries. The British attitude is "this is the reference dictionary and everything in it is fair game." There are so many weird words in
 _Chambers_ that I often find myself trying out a word I don't know, and, lo!, it's an entry in _Chambers_. For instance, I was pretty sure that a clue was instructing
