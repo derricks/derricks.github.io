@@ -26,8 +26,10 @@ for Gregorian chants.
 That part above where I say "you do you" about looking up stuff? It's still true, but just know what you're up against.
 
 ## Start Memorizing
-
+Some of succeeding at Magpie's (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on.
 [Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) great set of strategic things to memorize.
+For the actual practice of memorizing, I'm a big fan of [the method of loci](https://en.wikipedia.org/wiki/Method_of_loci), a Swiss-army
+knife of a technique, as a starting tactic. Dominic O'Brien's _[Quantum Memory Power](https://bookshop.org/p/books/quantum-memory-power-learn-to-improve-your-memory-with-the-world-memory-champion-dominic-o-brien/14126115?ean=9781722503246)_ is a decent intro to the topic, though there are a host of similar books that all walk you through the process, so check your local library. I've also come up with custom strategies for things like Periodic Table symbols, though they're simply tweaks on well-known techniques.
 
 Here are some of the things I'm working to memorize:
   * Countries
@@ -40,13 +42,17 @@ Here are some of the things I'm working to memorize:
   * Periodic Table
     * Names
     * Symbols
-  * Constellations
+  * Constellations (often clued as "stars" or "group of stars")
   * Tube Stations
   * All the UK Islands
   * Hebrew
     * Letters
     * Months
+  * Greek letters
   * SI units
+  * Scots words in _Chambers_
+  * "Spenser" words in _Chambers_ : words last used by Spenser in the late 1500's (often clued with "poet's")
+  * "Shakespeare" words in _Chambers_ : same as "Spenser" but for William Shakespeare (often clued with "Will" or "bard")
 
 ## British Culture
 A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
@@ -54,6 +60,7 @@ A challenging aspect of Magpies for Americans is that it often references Britis
   * London neighborhood geography
   * Heraldry terms
   * Cricket
+  * [British monarchs](https://www.historic-uk.com/HistoryUK/KingsQueensofBritain/)
 
 ## Other
 These are other key strategies I'm using that don't fit into the other categories.
