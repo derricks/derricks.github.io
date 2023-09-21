@@ -27,7 +27,30 @@ That part above where I say "you do you" about looking up stuff? It's still true
 
 ## Start Memorizing
 
-Here are some of the things I've found helpful to memorize:
+[Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) great set of strategic things to memorize.
+
+Here are some of the things I'm working to memorize:
+  * Countries
+    * Names (often clued as "State" or "Nation")
+    * Capitals
+    * Current major currency (e.g., dollar) (often clued with slang for money, see below)
+    * Current minor currency  (e.g., cent)
+    * Historic currencies
+    * International Vehicle Registration codes (often clued as "... /country name/ ... " which corresponds to an IVR code used in the entry)
+  * Periodic Table
+    * Names
+    * Symbols
+  * Constellations
+  * Tube Stations
+  * All the UK Islands
+  * Hebrew
+    * Letters
+    * Months
+  * SI units
 
 ## British Culture
-A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I've learned to help me overcome my cultural gap.
+A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
+  * UK Geography
+  * London neighborhood geography
+  * Heraldry terms
+  * Cricket
