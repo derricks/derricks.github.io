@@ -20,7 +20,7 @@ is a toned-down indication that you 100% need a copy of the _Chambers_ dictionar
 (Do you think that's cheating? You do you, but you will find the vocabulary in Magpie intense.) The American attitude to cryptic crossword entries is that entries should be relatively
 familiar and defensible across a few dictionaries. The British attitude is "this is the reference dictionary and everything in it is fair game." There are so many weird words in
 _Chambers_ that I often find myself trying out a word I don't know, and, lo!, it's an entry in _Chambers_. For instance, I was pretty sure that a clue was instructing
-me to anagram the letters EOUEUE. I couldn't imagine that was a word, but I tried it in the anagram finder to be sure. Turns out, EUOUAE is an _alternate_ spelling of a medieval musical mnemonic
+me to anagram the letters AOUEUE. I couldn't imagine that was a word, but I tried it in the anagram finder to be sure. Turns out, EUOUAE is an _alternate_ spelling of a medieval musical mnemonic
 for Gregorian chants.
 
 That part above where I say "you do you" about looking up stuff? It's still true, but just know what you're up against.
