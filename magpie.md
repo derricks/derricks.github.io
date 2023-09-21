@@ -53,7 +53,10 @@ Here are some of the things I'm working to memorize:
   * Scots words in _Chambers_
   * "Spenser" words in _Chambers_ : words last used by Spenser in the late 1500's (often clued with "poet's")
   * "Shakespeare" words in _Chambers_ : same as "Spenser" but for William Shakespeare (often clued with "Will" or "bard")
-
+  * U.S. States
+    * Name
+    * Postal Code
+   
 ## British Culture
 A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
   * UK Geography
