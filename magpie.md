@@ -54,3 +54,7 @@ A challenging aspect of Magpies for Americans is that it often references Britis
   * London neighborhood geography
   * Heraldry terms
   * Cricket
+
+## Other
+These are other key strategies I'm using that don't fit into the other categories.
+  * Upon getting the solutions to an issue, look through each clue and explanation of the solution to learn phrasings, new word fragments, and more.
