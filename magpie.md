@@ -4,7 +4,7 @@ I knew that even many members of the [NPL](https://www.puzzlers.org) consider it
 But as I reached the point where I began to find American cryptics amusing but not particularly challenging, and as I managed to solve a few
 _[Listener](https://listenercrossword.com)_ puzzles (also considered very difficult, but about middle of the road for Magpie), I decided to try Magpie.
 
-First of all, these puzzles -- when you can solve them -- never fail to delight, educate, or even amaze. But the difficulty is no lie. For some perspective,
+First of all, these puzzles -- when you can solve them -- never fail to delight, educate, or even amaze. Sometimes in the middle of one, I think, "why am I doing this" only to reach a magical point where it all comes together and think "right. that's why." But the difficulty is no lie. For some perspective,
 at the moment I normally solve most normal American cryptics (such as the ones in the New York Times or from [Out of Left Field](https://www.leftfieldcryptics.com)) in
 around 15-20 minutes. Variety cryptics -- such as those in Harper's or the Wall Street Journal -- can take me 30-40 minutes. It's not unusual for the _easiest_
 puzzles in Magpie to take me an hour or more. And as I write this, I've been working on my second-ever D-grade puzzle for three weeks. (The puzzles go up to E.)
