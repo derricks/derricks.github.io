@@ -56,6 +56,7 @@ Here are some of the things I'm working to memorize:
   * U.S. States
     * Name
     * Postal Code
+  * The _Chambers Crossword Manual_ list of accepted abbreviations for certain words (usually the word in the clue becomes the abbreviation in the entry)
    
 ## British Culture
 A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
