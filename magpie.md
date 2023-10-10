@@ -55,6 +55,7 @@ knife of a technique, as a starting tactic. Dominic O'Brien's _[Quantum Memory P
     * Name
     * Postal Code
   * The _Chambers Crossword Manual_ list of accepted abbreviations for certain words (usually the word in the clue becomes the abbreviation in the entry)
+   * Including all the single-letter abbreviations in _Chambers_
   * Slang for money in _Chambers_
   * Names of fish in _Chambers_
    
