@@ -42,7 +42,7 @@ knife of a technique, as a starting tactic. Dominic O'Brien's _[Quantum Memory P
     * Symbols
   * Constellations (often clued as "stars" or "group of stars")
   * Tube Stations
-  * All the UK Islands
+  * All the UK and Ireland islands
   * Hebrew
     * Letters
     * Months
@@ -64,7 +64,7 @@ A challenging aspect of Magpies for Americans is that it often references Britis
   * UK Geography
   * London neighborhood geography
   * Heraldry terms
-  * Cricket
+  * Cricket [Cricket for Dummies](https://bookshop.org/p/books/cricket-for-dummies/18933410?ean=9781394164769), [What Is a Googly?](https://www.amazon.com/What-Googly-Mysteries-Cricket-Explained-ebook/dp/B09GGXFV6C/ref=sr_1_1?crid=3ROSP5XYRG1G8&keywords=what%27s+a+googly&qid=1703020209&sprefix=what%27s+a+googly%2Caps%2C136&sr=8-1)
   * [British monarchs](https://www.historic-uk.com/HistoryUK/KingsQueensofBritain/)
 
 ## Other
