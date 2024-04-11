@@ -1,10 +1,15 @@
 [Back to top](https://derricks.github.io/book_recommendations_index)
 
-These books have minimal illustrations. Maybe none, maybe just on chapter headings. Or they have a low proportion of illustrations to text. All are suitable, more or less, for kids 10 years or younger.
+These books have minimal illustrations. Maybe none, maybe just on chapter headings. Or they have a low proportion of illustrations to text. All are suitable, more or less, for kids 10 years or younger. Because this list includes some YA titles, I've called out the "YA-ness" aspects that may make the books less appropriate for your kids, depending on your (and their!) comfort levels.
 
 These are only ordered by the order in which I read them (newest at top) because I assume if you're here, you're less focused on reading level and are just looking to see what's new since the last time you looked.
 
 Most of these are also rated on a [goodreads shelf](https://www.goodreads.com/review/list/7272957-derrick-schneider?shelf=kids-no-pictures).
+
+## _A Sorcery of Thorns_, Margaret Rogerson ##
+![](https://images-na.ssl-images-amazon.com/images/I/71AuWgN2H7L._AC_UL348_SR348,348_.jpg)
+
+This is squarely in the YA space, and the main mature aspect is a paragraph-long kiss that isn't, technically, sex but is clearly ramping up to it. Also: A couple less intense kisses, plus the standard standing near each other in nightclothes or other forms of not-suitable-for-public clothing. But if that's okay, this is an intense Gothic story about a young woman raised in a Great Library: one of a half-dozen preserves for dangerous and often gruesome grimoires that not only have minds of their own but can transform into deadly entities called Malifects if damaged. All Elizabeth wants to do is become a warden, one of the librarians who keep the books safe. But that changes when her Library's Director is killed by a Malifect and Elizabeth is presumed guilty. She pairs up with a handsome sorcerer and the demon bonded to him -- who provides the channel of magic -- to discover a conspiracy deep at the heart of the entire land. This leads to an epic, nerve-wracking showdown. It's a fast read, and Elizabeth is courageous and determined with a strong moral compass.
 
 ## _The Ministry of Unladylike Activity_, Robin Stevens
 ![](https://m.media-amazon.com/images/I/51S2iLHUmnL.jpg)
