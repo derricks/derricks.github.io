@@ -28,13 +28,13 @@ Some of succeeding at Magpie's (or any puzzle with clues, probably) is having a 
 [Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) set.
 
 For the actual practice of memorizing, I'm a big fan of [the method of loci](https://en.wikipedia.org/wiki/Method_of_loci), a Swiss-army
-knife of a technique, as a starting tactic. Dominic O'Brien's _[Quantum Memory Power](https://bookshop.org/p/books/quantum-memory-power-learn-to-improve-your-memory-with-the-world-memory-champion-dominic-o-brien/14126115?ean=9781722503246)_ is a decent intro to the topic, though there are a host of similar books that all walk you through the same process, so check your local library. I've also come up with custom strategies for things like Periodic Table symbols, though they're simply tweaks on well-known techniques.
+knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https://www.amazon.com/Remember-People-Passwords-Everything-Forget/dp/1419732560)_ is a decent intro to the topic, though there are a host of similar books that all walk you through the same process, so check your local library. I've also come up with custom strategies for things like Periodic Table symbols, though they're simply tweaks on well-known techniques.
 
   * Countries
     * Names (often clued as "State" or "Nation")
     * Capitals
     * Current major currency (e.g., dollar) (often clued with slang for money, see below)
-    * Current minor currency  (e.g., cent)
+    * Current fractional currency  (e.g., cent)
     * Historic currencies
     * International Vehicle Registration codes (often clued as "... /country name/ ... " which corresponds to an IVR code used in the entry)
   * Periodic Table
