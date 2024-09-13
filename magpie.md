@@ -67,6 +67,8 @@ A challenging aspect of Magpies for Americans is that it often references Britis
   * Heraldry terms
   * Cricket [Cricket for Dummies](https://bookshop.org/p/books/cricket-for-dummies/18933410?ean=9781394164769), [What Is a Googly?](https://www.amazon.com/What-Googly-Mysteries-Cricket-Explained-ebook/dp/B09GGXFV6C/ref=sr_1_1?crid=3ROSP5XYRG1G8&keywords=what%27s+a+googly&qid=1703020209&sprefix=what%27s+a+googly%2Caps%2C136&sr=8-1)
   * [British monarchs](https://www.historic-uk.com/HistoryUK/KingsQueensofBritain/)
+  * Random:
+    * [British menswear ](https://www.fashionbeans.com/article/best-british-menswear-brands/?utm_source=pocket_saves)
 
 ## Other
 These are other key strategies I'm using that don't fit into the other categories.
