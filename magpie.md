@@ -11,7 +11,7 @@ puzzles in Magpie to take me an hour or more. And as I write this, I've been wor
 
 While I've gotten better at them through practice, I still struggle to get through them.
 
-And so I decided to strategize specifically with a focus being able to solve all 6 puzzles in a Magpie issue within the month solvers are given. Here are steps on my journey.
+And so I decided to strategize specifically with a focus being able to solve all 6 puzzles in a Magpie issue within the month solvers are given. Here are steps on my journey. (Note that much of this advice applies to the _Listener_ puzzle as well.)
 
 ## _Chambers_
 The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://chambers.co.uk)_ is the primary reference." This is not just "hey, did you know about this dictionary?" this is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version and the app, but the app is invaluable for its ability to do wild-card searches and anagrams.
