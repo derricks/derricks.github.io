@@ -61,6 +61,7 @@ knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https
    
 ## British Culture
 A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
+  * Prime Minisers
   * UK Geography
     * London borough names and (because why not) geography
     * Major islands in United Kingdom and Ireland
