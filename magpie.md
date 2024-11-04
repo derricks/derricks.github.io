@@ -45,6 +45,7 @@ knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https
   * Hebrew
     * Letters
     * Months
+    * Days of the week
   * Greek letters
   * Old English runes
   * SI units
