@@ -41,7 +41,7 @@ knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https
     * Names
     * Symbols
   * Constellations (often clued as "stars" or "group of stars")
-  * Books of the Bible (often clued as "book")
+  * Books of the Bible (often clued as "book," though that could also mean "b"!)
   * Hebrew
     * Letters
     * Months
@@ -62,7 +62,7 @@ knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https
    
 ## British Culture
 A challenging aspect of Magpies for Americans is that it often references British culture. Here are things I'm learning/memorizing to help me overcome my cultural gap.
-  * Prime Minisers
+  * Prime Ministers
   * UK Geography
     * London borough names and (because why not) geography
     * Major islands in United Kingdom and Ireland
