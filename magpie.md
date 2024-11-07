@@ -42,7 +42,7 @@ knife of a technique, as a starting tactic. Nelson Dellis' _[Remember It!](https
     * Symbols
   * Constellations (often clued as "stars" or "group of stars")
   * Books of the Bible (often clued as "book," though that could also mean "b"!)
-  * Hebrew
+  * Hebrew (often just clued as "letter" or "month" or "day," depending)
     * Letters
     * Months
     * Days of the week
