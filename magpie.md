@@ -24,7 +24,7 @@ for Gregorian chants.
 That part above where I say "you do you" about looking up stuff? It's still true, but just know what you're up against. And maybe you knew that mnemonic; how up are you on the local names for flora around the world? Or the many many ... many ... words that are types of fish?
 
 ## Start Memorizing
-Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I'm working to memorize. 
+Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I've either memorized or on my list to memorize.
 [Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) set.
 
 For the actual practice of memorizing, I'm a big fan of [the method of loci](https://en.wikipedia.org/wiki/Method_of_loci), a Swiss-army
