@@ -13,15 +13,36 @@ While I've gotten better at them through practice, I still struggle to get throu
 
 And so I decided to strategize specifically with a focus being able to solve all 6 puzzles in a Magpie issue within the month solvers are given. Here are steps on my journey. (Note that much of this advice applies to the _Listener_ puzzle as well.)
 
+## Why Are These So Hard?
+So they're more daunting than most cryptics, but why? Over the time I've done them, here are some of the items I've noticed.
+
+  - The mechanics are hard. These sort of transformations are very common:
+    - Clues might have an extra letter
+    - Clues might need a letter inserted
+    - Clues might have "misprints" that need to be corrected
+    - Entries might need to be entered scrambled
+    - Some variation of "you don't know where the entries will go for a while"
+    - Some sort of encoding/decoding
+    - and various others. This is all before you get to the final part of the puzzle, which often involves the solved grid and instructions you've unearthed as you've solved.
+   
+  - The themes are hard: old TV shows, various songs, transit lines from large cities, history, allusions to books, physics diagrams, and more have all been themes.
+    
+  - The vocabulary is hard. The general American mindset is that an entry should be defensible across a few dictionaries and relatively common. The Magpie (and Listener) mindset is: this is the dictionary we use, and anything in it is fair game. For example:
+    - The alternate spelling of a mnemonic for Gregorian chants
+    - Lots of words from the Scots dialect
+    - Family/genus names for plants around the world
+    - Plants that only grow in one area
+    - Currencies, both modern and historic
+    - Many types of fish
+    - Many types of slang for money
+    - etc.
+      
+ -  They're British
+   -  As an American, I simply don't have ready access to British culture and common knowledge
+   -  For the kind of person who solves Magpies, I think the British educational experience is much broader than the American one.
+
 ## _Chambers_
 The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://chambers.co.uk)_ is the primary reference." This is not just "hey, did you know about this dictionary?" this is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version and the app, but the app is invaluable for its ability to do wild-card searches and anagrams.
-(Do you think that's cheating? You do you, but you will find the vocabulary in Magpie intense.) The American attitude to cryptic crossword entries is that entries should be relatively
-familiar and defensible across a few dictionaries. Magpie's attitude is "this is the reference dictionary and everything in it is fair game." There are so many weird words in
-_Chambers_ that I often find myself trying out a word I don't know, and, lo!, it's an entry in _Chambers_. For instance, I was pretty sure that a clue was instructing
-me to anagram the letters AOUEUE. I couldn't imagine that was a word, but I tried it in the anagram finder to be sure. Turns out, EUOUAE is an _alternate_ spelling of a medieval musical mnemonic
-for Gregorian chants.
-
-That part above where I say "you do you" about looking up stuff? It's still true, but just know what you're up against. And maybe you knew that mnemonic; how up are you on the local names for flora around the world? Or the many many ... many ... words that are types of fish?
 
 ## Start Memorizing
 Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I've either memorized or on my list to memorize.
