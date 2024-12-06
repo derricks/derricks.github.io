@@ -28,7 +28,6 @@ So they're more daunting than most cryptics, but why? Over the time I've done th
   - The themes are hard: old TV shows, various songs, transit lines from large cities, history, allusions to books, physics diagrams, and more have all been themes.
     
   - The vocabulary is hard. The general American mindset is that an entry should be defensible across a few dictionaries and relatively common. The Magpie (and Listener) mindset is: this is the dictionary we use, and anything in it is fair game. For example:
-    - The alternate spelling of a mnemonic for Gregorian chants
     - Lots of words from the Scots dialect
     - Family/genus names for plants around the world
     - Plants that only grow in one area
@@ -38,8 +37,9 @@ So they're more daunting than most cryptics, but why? Over the time I've done th
     - etc.
       
  -  They're British
-   -  As an American, I simply don't have ready access to British culture and common knowledge
-   -  For the kind of person who solves Magpies, I think the British educational experience is much broader than the American one.
+    -  As an American, I simply don't have ready access to British culture and common knowledge
+    -  For the kind of person who solves Magpies, I think the British educational experience is much broader than the American one.
+    -  British cluing is a bit less rigid than American cluing. The "one side is the definition and the other side is the wordplay" can be a bit more loosey-goosey in British clues
 
 ## _Chambers_
 The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://chambers.co.uk)_ is the primary reference." This is not just "hey, did you know about this dictionary?" this is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version and the app, but the app is invaluable for its ability to do wild-card searches and anagrams.
