@@ -44,6 +44,8 @@ So they're more daunting than most cryptics, but why? Over the time I've done th
 ## _Chambers_
 The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://chambers.co.uk)_ is the primary reference." This is not just "hey, did you know about this dictionary?" this is a toned-down indication that you 100% need a copy of the _Chambers_ dictionary. I have the physical version and the app, but the app is invaluable for its ability to do wild-card searches and anagrams.
 
+You may think you just need it for the entries, but even the clues will often rely on lesser-known definitions of words you may think you know.
+
 ## Start Memorizing
 Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I've either memorized or on my list to memorize.
 [Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) set.
