@@ -510,7 +510,7 @@ _The Graveyard Book_, Neil Gaiman
 ![](https://images-na.ssl-images-amazon.com/images/I/51w3V6QNpXL._SX337_BO1,204,203,200_.jpg)
   * Premise: A living boy is raised in a graveyard of ghosts (and one vampire) after his family is killed by a mysterious stranger.
   * General thoughts: Neil Gaiman is a modern master of fairy tales, and he brings his gifts to bear in this homage to _The Jungle Book_ (the book). More a collection of vignettes than a single story, there is nonetheless an overarching narrative arc as Nobody Owens wants to integrate into the living world and track down the mysterious stranger Jack who killed his family. Note that that initial chapter (and the book's closing) are pretty tense and might be hard for younger readers to deal with.
-  * Social commentary: None of note. There is maybe one character of color in the book, and for a time Nobody has a spunky friend who's a girl, but this is largely about a boy in England.
+  * Social commentary: There is maybe one character of color in the book, and for a time Nobody has a spunky friend who's a girl, but this is largely about a boy in England. Note that I wrote this well before the numerous allegations of rape came out against Gaiman. The statement about the book still stands, but note that Gaiman is not the role model we would have liked.
 
 _Unusual Chickens_ series, Kelly Jones
 
