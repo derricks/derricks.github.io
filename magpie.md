@@ -11,7 +11,7 @@ puzzles in Magpie to take me an hour or more. And as I write this, I've been wor
 
 While I've gotten better at them through practice, I still struggle to get through them.
 
-And so I decided to strategize specifically with a focus being able to solve all 6 puzzles in a Magpie issue within the month solvers are given. Here are steps on my journey. (Note that much of this advice applies to the _Listener_ puzzle as well.)
+And so I decided to strategize specifically with a focus being able to solve all 6 puzzles in a Magpie issue within the month solvers are given. Here are notes on my thoguhts. (Note that much of this advice applies to the _Listener_ puzzle as well.)
 
 ## Why Are These So Hard?
 So they're more daunting than most cryptics, but why? Over the time I've done them, here are some of the items I've noticed.
@@ -25,9 +25,9 @@ So they're more daunting than most cryptics, but why? Over the time I've done th
     - Some sort of encoding/decoding
     - and various others. This is all before you get to the final part of the puzzle, which often involves the solved grid and instructions you've unearthed as you've solved.
    
-  - The themes are hard: old TV shows, various songs, transit lines from large cities, history, allusions to books, physics diagrams, and more have all been themes.
+  - The themes are hard: old TV shows, various songs, transit lines from large cities, history, allusions to books, cricket, movies, physics diagrams, and more have all been themes.
     
-  - The vocabulary is hard. The general American mindset is that an entry should be defensible across a few dictionaries and relatively common. The Magpie (and Listener) mindset is: this is the dictionary we use, and anything in it is fair game. For example:
+  - The vocabulary is hard. The general American mindset is that a cryptic crossword entry should be defensible across a few dictionaries and relatively common. The Magpie (and Listener) mindset is: this is the dictionary we use, and anything in it is fair game. For example:
     - Lots of words from the Scots dialect
     - Family/genus names for plants around the world
     - Plants that only grow in one area
@@ -47,7 +47,7 @@ The _Listener_ puzzles often have a little blurb that says "_[Chambers](https://
 You may think you just need it for the entries, but even the clues will often rely on lesser-known definitions of words you may think you know.
 
 ## Start Memorizing
-Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I've either memorized or on my list to memorize.
+Succeeding at Magpies (or any puzzle with clues, probably) is having a wide array of knowledge you can quickly draw on. Here's a list of things I've either memorized or are on my list to memorize.
 [Big Dave's blog](http://bigdave44.com/features/the-mine/) is another (and often overlapping) set.
 
 For the actual practice of memorizing, I'm a big fan of [the method of loci](https://en.wikipedia.org/wiki/Method_of_loci), a Swiss-army
